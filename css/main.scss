@@ -3,37 +3,143 @@
 ---
 @charset "utf-8";
 
-// Our variables
-$base-font-family: "Helvetica Neue", Helvetica, Arial, sans-serif;
-$base-font-size:   16px;
-$base-font-weight: 400;
-$small-font-size:  $base-font-size * 0.875;
-$base-line-height: 1.5;
+$max-width: 1280px;
+$sidebar-width: 300px;
+$primary: #cb5d00;
 
-$spacing-unit:     30px;
+@import 'https://fonts.googleapis.com/css?family=Lobster|Ruda';
 
-$text-color:       #111;
-$background-color: #fdfdfd;
-$brand-color:      #2a7ae2;
+html, body {
+  padding: 0;
+  margin: 0;
+  font-family: 'Ruda', sans-serif;
+  font-size: 18px;
+}
 
-$grey-color:       #828282;
-$grey-color-light: lighten($grey-color, 40%);
-$grey-color-dark:  darken($grey-color, 25%);
+h1, h2, h3, h4, h5, h6 {
+  font-weight: 100;
+  font-family: 'Lobster', serif;
+}
 
-// Width of the content area
-$content-width:    800px;
+h1 {
+  font-size: 50px;
+}
 
-$on-palm:          600px;
-$on-laptop:        800px;
+h2 {
+  font-size: 40px;
+}
 
-// Minima also includes a mixin for defining media queries.
-// Use media queries like this:
-// @include media-query($on-palm) {
-//     .wrapper {
-//         padding-right: $spacing-unit / 2;
-//         padding-left: $spacing-unit / 2;
-//     }
-// }
+h3 {
+  font-size: 30px;
+}
 
-// Import partials from the `minima` theme.
-@import "minima";
+h4 {
+  font-size: 20px;
+}
+
+* {
+  box-sizing: border-box;
+}
+
+img {
+  max-width: 100%;
+}
+
+ul, ol {
+  list-style: none;
+  padding: 0;
+  margin: 0;
+}
+
+.read-more,
+a {
+  color: $primary;
+  text-decoration: underline;
+}
+
+.site-header, .page-content, .site-footer, .site-sidebar {
+  max-width: $max-width;
+  margin: 0 auto;
+  width: 100%;
+}
+
+.site-sidebar {
+  padding: 20px;
+  padding-top: 10px;
+  margin-top: 40px;
+  border-top: gray dashed 1px;
+  float: left;
+}
+
+.about-image {
+  width: 120px;
+  float: left;
+  margin-right: 20px;
+  margin-bottom: 20px;
+  @media all and (min-width: 500px) {
+    width: 250px;
+  }
+}
+
+.site-header {
+  margin-top: 20px;
+  text-align: center;
+}
+
+.page-content {
+  padding: 20px;
+}
+
+.post-image {
+  background-size: cover;
+  background-position: center center;
+
+  &:after {
+    content: '';
+    display: block;
+    padding-bottom: 60%;
+  }
+}
+
+.post-link {
+  text-decoration: none;
+  color: black;
+  float: left;
+  padding-bottom: 30px;
+}
+
+.post-meta {
+  padding-bottom: 20px;
+  display: block;
+}
+
+.tags-wrapper {
+  text-align: center;
+  padding-top: 20px;
+}
+
+.tag {
+  padding: 10px;
+  font-style: italic;
+}
+
+@media all and (min-width: #{$max-width + ($sidebar-width * 2)}) {
+  .site-sidebar {
+    position: fixed;
+    width: $sidebar-width - 50px;
+    top: 204px;
+    right: 50px;
+
+    padding-top: 0;
+    margin-top: 0;
+    border-top: none;
+  }
+
+  .post-image {
+    min-height: 400px;
+    
+    &:after {
+      display: none;
+    }
+  }
+}
