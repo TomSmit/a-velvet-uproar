@@ -1,9 +1,11 @@
 ---
 title: Welcome to Jekyll!
-date: '2016-08-07 18:42:59 +0200'
+date: '2016-08-07 00:00:00'
 categories: jekyll update
 published: true
 ---
 # Lorem ipsum
 
 Jo Henk!
+
+Test piet
