@@ -1,10 +1,12 @@
 ---
 title: vette blog!
 date: 2016-08-08 17:35:00 Z
+image: "/uploads/13.jpg"
 ---
 
 Hoi
 
-Test![file000626266718.jpg](/uploads/file000626266718.jpg)
+prrr
+![7.jpg](/uploads/7.jpg)
 
 prrr
