@@ -8,7 +8,7 @@ layout: default
         <a class="post-link" href="{{ post.url | prepend: site.baseurl }}">
             <h2>{{ post.title | escape }}</h2>
             <span class="post-meta">{{ post.date | date: "%b %-d, %Y" }}</span>
-            <div class="post-image" style="background-image: url({{ post.image }});"></div>
+            <div class="post-image" style="background-image: url({{ post.image | prepend: site.baseurl }});"></div>
             {{ post.excerpt }}
             <span class="read-more">Read more</span>
         </a>
