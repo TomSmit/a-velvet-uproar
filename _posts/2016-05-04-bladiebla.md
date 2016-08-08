@@ -1,7 +1,10 @@
 ---
-title: "Bladiebla"
-image: "/images/blog1.jpg" 
-tags: henk jansen
+title: Bladiebla
+date: 2016-05-04 00:00:00 Z
+tags:
+- henk
+- jansen
+image: "/images/blog1.jpg"
 ---
 
 Tom looked at me funny when I said to him “you should write a little something on your trip through Norway, that’ll be nice.” “Nah,” he replied. “That’s not really my thing.” 

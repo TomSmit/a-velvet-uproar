@@ -1,6 +1,7 @@
 ---
-title: "Lorem ipsum"
-image: "/images/about.jpg" 
+title: Lorem ipsum
+date: 2016-08-07 00:00:00 Z
+image: "/images/about.jpg"
 ---
 
 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Phasellus viverra ante in ipsum hendrerit, ut tristique neque aliquet. Donec magna lacus, laoreet et leo ut, blandit pellentesque nisi. 
