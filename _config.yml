@@ -9,10 +9,13 @@ collections:
     title: Uploads
     output: true
 defaults:
-- scope:
-    path: ''
-  values:
-    layout: post
+  -
+    scope:
+      path: ""
+      type: "posts"
+    values:
+      layout: "post"
+      image: "/images/about.jpg"
 email: avelvetuproar@gmail.com
 about: Lorem ipsum dolor sit amet, consectetur adipiscing elit. Phasellus viverra
   ante in ipsum hendrerit, ut tristique neque aliquet. Donec magna lacus, laoreet
@@ -22,13 +25,3 @@ baseurl: ''
 url: http://avelvetuproar.com
 github_username: tomsmit
 markdown: kramdown
-prose:
-  rooturl: _posts
-  siteurl: http://velvetupraor.com/
-  relativeLinks: http://velvetupraor.com/links.jsonp
-  media: media
-  ignore:
-  - index.md
-  - _config.yml
-  - "/_layouts"
-  - "/_includes"
