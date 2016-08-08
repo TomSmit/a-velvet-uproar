@@ -9,16 +9,15 @@ collections:
     title: Uploads
     output: true
 defaults:
-  -
-    scope:
-      path: ""
-      type: "posts"
-    values:
-      layout: "post"
-      image: "/images/about.jpg"
-      map:
-        latitude:
-        longitude: 
+- scope:
+    path: ''
+    type: posts
+  values:
+    layout: post
+    image: "/images/about.jpg"
+    map:
+      latitude: 
+      longitude: 
 email: avelvetuproar@gmail.com
 about: Lorem ipsum dolor sit amet, consectetur adipiscing elit. Phasellus viverra
   ante in ipsum hendrerit, ut tristique neque aliquet. Donec magna lacus, laoreet
