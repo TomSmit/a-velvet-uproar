@@ -23,7 +23,7 @@ about: Lorem ipsum dolor sit amet, consectetur adipiscing elit. Phasellus viverr
   ante in ipsum hendrerit, ut tristique neque aliquet. Donec magna lacus, laoreet
   et leo ut, blandit pellentesque nisi. Etiam congue libero non augue tempor, quis
   dapibus mauris interdum.
-baseurl: '/a-velvet-uproar'
+baseurl: "/a-velvet-uproar"
 url: http://avelvetuproar.com
 github_username: tomsmit
 markdown: kramdown
