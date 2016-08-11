@@ -1,6 +1,6 @@
 ---
 title: Continuing Veganism
-date: 2016-08-11 11:04:00 Z
+date: 2015-12-05 11:04:00 Z
 ---
 
 *I have been vegan for 3 months now. Maybe one of the biggest changes which happened compared to 3 months ago is when I first started I would have said I eat vegan. Now 3 months later I say I am vegan. Within these 3 months I have become aware of a lot and learned a lot. Today I like to share with you what the past three months have been like, how I feel physically but maybe most importantly how I feel about all the things I have become aware of.*
