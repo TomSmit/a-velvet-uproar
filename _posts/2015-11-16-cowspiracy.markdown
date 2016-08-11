@@ -1,5 +1,5 @@
 ---
-title: COWSPIRACY REVIEW
+title: Cowspiracy review
 date: 2015-11-16 10:47:00 Z
 ---
 
