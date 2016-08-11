@@ -1,6 +1,6 @@
 ---
 title: Negativity? I want positivity!
-date: 2016-08-11 12:00:00 Z
+date: 2016-01-26 12:00:00 Z
 ---
 
 *Yes, in this case as well, I can speak out of my own experience. While traveling you can, of course, also encounter an unpleasant situation, less kind people or moments you did not necessarily want to experience. In this case, traveling is not excluded from the negative but I think there is a huge but and maybe that goes for life in general. Maybe first, let me give you an example.*
