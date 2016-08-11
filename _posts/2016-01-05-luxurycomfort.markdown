@@ -1,6 +1,6 @@
 ---
 title: Less luxury, less comfort?
-date: 2016-08-11 11:57:00 Z
+date: 2016-01-05 11:57:00 Z
 ---
 
 *During our travels we started realizing all the ‘normal’ luxuries aren’t always so normal or even necessary. Today I would like to talk about our experiences and what we have learned on this topic (so far).*
