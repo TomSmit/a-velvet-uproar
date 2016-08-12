@@ -3,6 +3,9 @@ title: An introduction
 date: 2016-08-12 18:51:00 Z
 tags:
 - "#TomandLisadoEurope"
+map:
+  latitude: 52.1278081
+  longitude: 5.9134613
 ---
 
 *It took me a while, eight months to be exact, to decide to write down ‘our’ journey. Traveling to me, is about experiencing it, doing it. Words aren’t an obstacle in that sense but it is more a question of, are they necessary? The reason why I did decide to write it down lies in my desire to 'want to remember’, memories hidden inside written words are, to me, a form of magic just like traveling itself.*
