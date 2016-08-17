@@ -1,6 +1,8 @@
 ---
 title: Málaga and Granada city trips
-date: 2016-08-17 12:29:00 Z
+date: 2015-10-30 12:29:00 Z
+tags:
+- "#TomandLisadoEurope"
 ---
 
 *In May we visited both Málaga and Granada. Málaga was just for one day at the beginning of May but we saw plenty of things and at the end of May we stayed in Granada from Friday to Sunday. They are both interesting cities and especially since we had been spending our time in the countryside, it was quite a nice change.*
