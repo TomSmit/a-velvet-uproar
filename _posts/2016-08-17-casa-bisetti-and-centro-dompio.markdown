@@ -1,6 +1,8 @@
 ---
 title: Casa Bisetti and Centro d'Ompio
 date: 2016-08-17 12:01:00 Z
+tags:
+- "#TomandLisadoEurope"
 ---
 
 *Our time spent at Casa Bisetti and Centro d'Ompio was a wonderful one. I don’t think we could have wished for a better place to start off our journey. We met lots of kind and inspiring people, had the most interesting workshops and worked and ate lovely meals together. Our six weeks there were during the off season (beginning of February until the end of March), so not a whole lot of guests for Centro d'Ompio yet but instead a less busy  schedule  to do lots of things together as a group.*
