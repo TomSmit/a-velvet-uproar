@@ -23,6 +23,8 @@ Granada’s vibe is quite interesting. Music is all around the city, I found som
 
 A fun little fact, Granada in Spanish means pomegranate. The region is known for growing pomegranates. Plus another fun fact in the Granada province, when you order an alcoholic beverage (and sometimes even when you order a non alcoholic drink as well) you always get a free tapas. Tom and I both think this is a really nice thing about the Granada province. It kinda tells something about this area about how welcoming they are and how food is looked upon.
 
+[![IMG_6830.jpg](https://s3.postimg.org/tb9w1d31v/IMG_6830.jpg)](https://postimg.org/image/4urq6w2b3/)
+
 On Sunday Tom’s mother and her partner left quite early. So we had a little stroll throughout town, just the two of us. We visited a music store which obviously Tom was looking forward to. The sun finally really came out so we enjoyed the weather while having something to drink. And in the mid afternoon we headed for the bus station to head back to Almuñécar.
 
 FYI: Granada is known for its really high temperatures, especially during the summer. It can easily get up to 50 degrees. While we were there though, it was not that hot at all. We needed jackets and most the time it was quite cloudy.
