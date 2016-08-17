@@ -1,6 +1,6 @@
 ---
 title: Casa Bisetti and Centro d'Ompio
-date: 2016-08-17 12:01:00 Z
+date: 2015-10-11 12:01:00 Z
 tags:
 - "#TomandLisadoEurope"
 ---
