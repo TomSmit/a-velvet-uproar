@@ -11,7 +11,7 @@ Tom’s father and his partner came to visit us in the beginning of May and whil
 
 I am a big Picasso fan so obviously I had to go to the Picasso museum. (Picasso was born in Málaga.) It is a nice museum with all kinds of works from throughout his lifetime. The entree is about 7 to 8 euros per person but to me totally worth it. If you are interested in his work and you are in Málaga, I would definitely recommend it!  After that I wanted to go to another museum called ‘centre Pompidou’. I read about it in a magazine while we flew from Milan to Málaga back in March. It explained how this museum is a temporarily museum, it originally is based in Paris and they brought art works over from Paris to be shown in Málaga. Very exciting indeed! I saw a Frida Kahlo painting, more Picasso, Max Ernst etc. This museum is only temporarily so if you are in Málaga, go check it out!
 
-![IMG_6829.jpg](https://postimg.org/image/tzms3pvjj/)
+[![IMG_6829.jpg](https://s3.postimg.org/jcsyyaneb/IMG_6829.jpg)](https://postimg.org/image/tzms3pvjj/)
 
 We strolled through the nice park called ‘paseo parque’ with wonderful and beautiful plants and we saw noisy, green little parrots! We had some tapas and enjoyed the sun while it was not too hot. So all in all it was a nice day in Málaga. Where I saw plenty of stuff and really enjoyed seeing a city after quite some time.
 
