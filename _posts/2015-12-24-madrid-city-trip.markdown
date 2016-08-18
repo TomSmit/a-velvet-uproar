@@ -19,11 +19,11 @@ I find Madrid a perfect city to just simply wander through. Lots of fun little d
 
 We ate at a couple good and exciting vegan restaurants but we visited some wonderful vegan stores as well. Here are the places we went to:
 
-Planeta Vegano is an all vegan store. To me, heaven on Earth and oh so handy. It is also very interesting and exciting to see all the options you can have when one eats vegan. Yes, this store is simply wonderful. *Calle Ave Maria 34*
+Planeta Vegano is an all vegan store. To me, heaven on Earth and oh so handy. It is also very interesting and exciting to see all the options you can have when one eats vegan. Yes, this store is simply wonderful. Calle Ave Maria 34.
 
-Al Natural actually is a vegetarian restaurant but with enough vegan options. On their menu it tells you which dishes are vegan. Easy peasy! The food was good, the vibe was nice and pleasant and the staff was friendly. *Calle Zorrilla 11*
+Al Natural actually is a vegetarian restaurant but with enough vegan options. On their menu it tells you which dishes are vegan. Easy peasy! The food was good, the vibe was nice and pleasant and the staff was friendly. Calle Zorrilla 11.
 
-Sanissimo Healthy Fast Food, Tom and I were walking through the neighborhood Malasaña and I was telling Tom how I would love to find some vegan cake. Not much later we passed this store/cafe and outside written on their, I don’t know, small billboard it said* vegan cakes. Hello! Exactly what I was looking for. We shared a carob cake while enjoying some tea and coffee, Calle San Vicente Ferrer 28.
+Sanissimo Healthy Fast Food, Tom and I were walking through the neighborhood Malasaña and I was telling Tom how I would love to find some vegan cake. Not much later we passed this store/cafe and outside written on their, I don’t know, small billboard it said\* vegan cakes. Hello! Exactly what I was looking for. We shared a carob cake while enjoying some tea and coffee, Calle San Vicente Ferrer 28.
 
 VEGA is a 100% vegan tapas bar and restaurant. To me this restaurant felt real Spanish and that is what I loved about it so much! The food is very tasty, it looks amazing if you ask me and everyone was very kind! Calle de la Luna 9.
 
