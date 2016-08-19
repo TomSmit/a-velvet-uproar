@@ -1,0 +1,14 @@
+---
+title: Basilicata, Italy
+date: 2016-03-15 19:02:00 Z
+tags:
+- "#TomandLisadoEurope"
+---
+
+*We left Salento, Puglia kind of on a whim, so we decided to spend a couple days in Lecce to organize ourselves and to, of course, explore the city as well. From Lecce we took a train to Foggia and from there we took another train to Rionero in Vulture. All in all it took us about 5 hours to get there. Once we arrived in Rionero we were warm heartedly welcomed and picked up by car. When we arrived at the house four lovely, lovely dogs and veggie soup were waiting for us.*
+
+The Provence we were staying in is called Basilicata and our hosts were located in between Atella and San Fele. Oh, the beauty of the place was extreme. I remember the first morning I woke up and out of the window I saw all the green hills against the blue sky, it was magical. Salento is flat and then, all of a sudden, being surrounded by such a different view was amazing. We had 6 wonderful, wonderful weeks and I definitely enjoyed the mild winter. Due to the fact that it was winter time though when we were there we could not do a whole lot. Especially in the garden there was not a whole lot to be done. Plus on days when it was raining or when there were really strong, cold winds we did not do much outside. We did some smaller jobs like cleaning, painting walls, helping out with computer stuff, helping out in the vineyard, weeding, feeding and cuddling with the dogs and Tom helped out with some construction/building work as well.
+
+We also visited Napoli (or in English Naples) which you can read about here. We visited San Fele which is an absolutely gorgeous town located up against a big hill. We explored the area and walked down to the waterfalls close to San Fele. It was a really relaxing and beautiful walk with all the different shades of green surrounding us and hearing the waterfalls from afar. Tom and I really like to walk around and take in all the beauty surrounding us. Which is what we did a couple times. We also visited these two ‘small’ lakes up in the mountains called Monticchio the place is enchanting, really. Most of the grocery shopping was done in Atella and there I visited an Italian graveyard. That might sound a bit strange but in a way it was quite interesting to see. It was quite different to the graveyards I am used to back in the Netherlands. On Tom’s birthday we went out for lunch and enjoyed a real big meal. As it turns out, it is possible to eat vegan, even in a really small town. Haha!
+
+\*Our stay here from the end of January to the beginning of March was wonderful. Seeing so many different sides of Italy is definitely exciting. So yes we absolutely loved the time we spent with two kind hearted people, the sweetest dogs and funky cats and the stunning surroundings!\*
