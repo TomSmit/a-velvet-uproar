@@ -29,6 +29,9 @@ After a two hour, comfortable flight we landed at Malpensa airport. Once we land
 
 We were warm heartedly welcomed by Kitija and Michael, they showed us our room and in and around Casa Bisetti, Casa Bisetti is exactly what I imagined a warm, self improvised house lookslike. It is so very much alive because of all the different people which stay there for a certain period of time.
 
+![IMG_9907.JPG](/uploads/IMG_9907.JPG)
+![IMG_9846.JPG](/uploads/IMG_9846.JPG)
+
 The day before our arrival two other guys had already arrived. Nate from the USA and Mario from Spain. The next day Tyran from Australia arrived plus that same day we headed for Centro d'Ompio. To get there you have to walk up quite a steep road, it took me about 15 to 20 minutes (the 20 minutes being on a slow day). Every day the walk up was different. There were days I truly enjoyed it, sometimes it was quite do-able and some days my legs were yelling at me 'What the hell do you think you are doing?!’ But every time, every single one of us was rewarded with a stunning view.
 
 *As you might have noticed I tend to write about 'goodbyes’ and 'goodbye parties’ with single quotation marks. This is due to my belief that no such thing as a goodbye truly exists.*
