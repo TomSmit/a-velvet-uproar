@@ -3,6 +3,7 @@ title: Norway a road trip
 date: 2016-07-25 14:52:00 Z
 tags:
 - "#TomandLisadoEurope"
+image: "/uploads/IMG_3348.jpg"
 ---
 
 *Tom looked at me funny when I said to him “you should write a little something on your trip through Norway, that’ll be nice.” “Nah,” he replied. “That’s not really my thing.”*
