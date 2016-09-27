@@ -2,18 +2,16 @@ $max-width: 1280px;
 $sidebar-width: 300px;
 $primary: #cb5d00;
 
-@import 'https://fonts.googleapis.com/css?family=Lobster|Ruda';
-
 html, body {
   padding: 0;
   margin: 0;
-  font-family: 'Ruda', sans-serif;
+  font-family: 'Vollkorn', serif;
   font-size: 18px;
 }
 
 h1, h2, h3, h4, h5, h6 {
-  font-weight: 100;
-  font-family: 'Lobster', serif;
+  font-weight: 400;
+  font-family: 'Permanent Marker', cursive;
 }
 
 h1 {
@@ -117,6 +115,11 @@ a {
 .tag {
   padding: 10px;
   font-style: italic;
+}
+
+.social-link {
+  display: inline-block;
+  padding: 5px;
 }
 
 @media all and (min-width: #{$max-width + ($sidebar-width * 2)}) {

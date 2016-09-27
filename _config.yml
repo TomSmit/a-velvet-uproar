@@ -14,7 +14,7 @@ defaults:
     type: posts
   values:
     layout: post
-    image: "/images/about.jpg"
+    image: "/_uploads/about.jpg"
     map:
       latitude: 
       longitude: 
@@ -29,3 +29,4 @@ github_username: tomsmit
 markdown: kramdown
 sass:
   style: compressed
+host: 0.0.0.0
