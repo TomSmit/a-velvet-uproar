@@ -1,9 +1,11 @@
-<aside class="site-sidebar">
-    <h3>About us</h3>
-    <p>
-    <img src="{{ site.baseurl }}/images/about.jpg" class="about-image">
-        {{ site.about }}
-    </p>
+{% unless page.url == '/about/' %}
+    <aside class="site-sidebar">
+        <h3>About us</h3>
+        <p>
+        <img src="/uploads/about.jpg" class="about-image">
+            {{ site.about }}
+        </p>
 
-    <a href="/about" class="read-more">Read more</a>
-</aside>
+        <a href="/about" class="read-more">Read more</a>
+    </aside>
+{% endunless %}

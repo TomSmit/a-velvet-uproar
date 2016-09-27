@@ -14,15 +14,12 @@ defaults:
     type: posts
   values:
     layout: post
-    image: "/_uploads/about.jpg"
+    image: "/uploads/about.jpg"
     map:
       latitude: 
       longitude: 
 email: avelvetuproar@gmail.com
-about: Lorem ipsum dolor sit amet, consectetur adipiscing elit. Phasellus viverra
-  ante in ipsum hendrerit, ut tristique neque aliquet. Donec magna lacus, laoreet
-  et leo ut, blandit pellentesque nisi. Etiam congue libero non augue tempor, quis
-  dapibus mauris interdum.
+about: A Velvet Uproar is a personal platform on adventure seeking, working on change through learning and being active and wanting to be heard through the arts.
 baseurl: ''
 url: http://avelvetuproar.com
 github_username: tomsmit
@@ -30,3 +27,4 @@ markdown: kramdown
 sass:
   style: compressed
 host: 0.0.0.0
+repository: TomSmit/a-velvet-uproar
