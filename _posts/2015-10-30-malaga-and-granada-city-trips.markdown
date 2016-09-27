@@ -6,7 +6,7 @@ tags:
 ---
 
 *In May we visited both Málaga and Granada. Málaga was just for one day at the beginning of May but we saw plenty of things and at the end of May we stayed in Granada from Friday to Sunday. They are both interesting cities and especially since we had been spending our time in the countryside, it was quite a nice change.*
-
+<!--more-->
 Tom’s father and his partner came to visit us in the beginning of May and while we spent some time with them, all four of us decided to go and see Málaga for a day. Málaga is a nice, relaxed city. The city itself is not very big, everything is walkable. So that is what we did. It has beautiful buildings, nice parks plus it is very close to the beach.
 
 I am a big Picasso fan so obviously I had to go to the Picasso museum. (Picasso was born in Málaga.) It is a nice museum with all kinds of works from throughout his lifetime. The entree is about 7 to 8 euros per person but to me totally worth it. If you are interested in his work and you are in Málaga, I would definitely recommend it!  After that I wanted to go to another museum called ‘centre Pompidou’. I read about it in a magazine while we flew from Milan to Málaga back in March. It explained how this museum is a temporarily museum, it originally is based in Paris and they brought art works over from Paris to be shown in Málaga. Very exciting indeed! I saw a Frida Kahlo painting, more Picasso, Max Ernst etc. This museum is only temporarily so if you are in Málaga, go check it out!

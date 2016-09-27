@@ -6,7 +6,7 @@ tags:
 ---
 
 *During our time at Panarea, we worked on three garden projects. Together we built a permaculture garden patch, two raised garden beds and a herbal spiral. In this post I will explain a bit more about what these types of gardens are and why we chose to build them.*
-
+<!--more-->
 Tom and I both are very interested in learning more about growing our own food and doing so in a way that works together with nature instead of using her. A permaculture is a perfect example of that. I remember, about, 2 years ago Tom told me about permaculture. ‘A what?’ I thought. Now, two years later, with all the places we visit I hear the term all the time. So for anyone who has no idea of what a permaculture is, I will try my best at explaining it.
 
 **A permaculture** is (in our opinion) a better way of growing crops compared to the traditional way of agriculture. In permaculture looking at the soil and the veggies/fruits/herbs/trees needs is very important. It really is working together with the Earth and letting her do her thing. In a way you could compare it to a forest. This way you make optimum use of the benefits of the plants. For example learn which veggies like to grow next to each other and which are better not placed next to one another. (This is called companion planting.) What on Earth that means? Certain veggies can be beneficial to other veggies. For example plant cabbage near to tomatoes and celery because they repel cabbage worms. Another example is basil. Plant it near to most garden crops because it improves the flavor and growth of garden crops, especially tomatoes and lettuce. Plus it repels mosquitoes.

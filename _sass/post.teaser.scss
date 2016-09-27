@@ -1,0 +1,42 @@
+.post.teaser {
+  text-decoration: none;
+  color: black;
+  clear: both;
+  float: left;
+  width: 100%;
+  margin-bottom: 40px;
+
+  .date {
+    font-size: 16px;
+    margin-bottom: 20px;
+    float: left;
+    width: 100%;
+  }
+
+  .image {
+    max-width: 300px;
+    margin-top: 20px;
+    width: 100%;
+    float: left;
+    background-size: cover;
+    margin-right: -100%;
+    background-position: center center;
+
+    &:after {
+      content: '';
+      float: left;
+      padding-bottom: 60%;
+      width: 100%;
+    }
+  }
+
+  .title {
+    margin-top: 0;
+    margin-bottom: 20px;
+  }
+
+  .content {
+    float: left;
+    margin-left: 320px;
+  }
+}

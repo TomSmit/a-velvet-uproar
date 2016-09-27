@@ -6,7 +6,7 @@ tags:
 ---
 
 *Barcelona! We visited Barcelona back in May. We arrived in the Netherlands a little over 2 weeks ago but to me it feels like quite a bit ago. I am telling you guys, time is the strangest concept ever. But Barcelona was great. We really enjoyed ourselves and finishing off our European journey in Barcelona felt right and exciting.*
-
+<!--more-->
 Alright, so we were in Barcelona from May 19th until May 23rd. A good couple of days to explore the city in a bit of a slow pace. I loved it. I didn’t feel like we had to hurry to see everything. On May 19th we took the train from Figueres at about 10-ish in the morning and arrived in Barcelona around noon. We took a metro to our Airbnb, dropped off our lugage and we were ready for some food! we walked towards **Enjoy Vegan** and we both really enjoyed their food. They can be found at Plaça de Sant Agustí Vell 11. After our lunch we walked to the Picasso museum (Hello, yes I am a big Picasso fan!) and wandered through the museum. I don’t know, I find so much inspiration but also calmness while walking through interesting museums together with Tom. The walking, the looking, the observing, taking it in and talking and discussing what we both see and feel oh, I love those moments so much. After the Picasso Museum we headed for **Veritas** which is an organic supermarket chain. There are by the way quite a lot of them in Barcelona. Which I found really exciting! Afterwards we walked through the neighborhood called Sant Pere, Santa Caterina i la Ribera and via the Arc de Triomf we headed for our Airbnb again ‘round about 8 at night.
 
 *Pictured above; Arc de Triomf.*

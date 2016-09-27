@@ -29,3 +29,4 @@ sass:
   style: compressed
 host: 0.0.0.0
 repository: TomSmit/a-velvet-uproar
+excerpt_separator: <!--more-->

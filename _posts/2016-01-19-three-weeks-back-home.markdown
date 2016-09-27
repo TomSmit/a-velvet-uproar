@@ -6,7 +6,7 @@ tags:
 ---
 
 *On December the 8th Tom and I flew from Madrid to Eindhoven. Within two hours we found ourselves surrounded by the known. The place where we can easily understand signs, menus and lists of ingredients.*
-
+<!--more-->
 My family was waiting for us when we landed. I had not seen my mother since August but I had not seen my father and sister for ten months. I have learned though, with family, no matter how long it has been since you last saw one another, when you see each other again it is like that time period of not seeing one another has not happened. In my opinion, the magic of family. Everyone and everything is always familiar.
 
 For three weeks we were in the Netherlands. Those three weeks were filled with family, friends and Christmas. Seeing familiar faces again is somehow something quite strange but interesting. For the past ten months we knew ‘I won’t see one familiar face again, just while walking through the streets or while being in the super market. Pretty much wherever.’ While traveling you have to get to know a place and its people. And that, to me, is very exciting.

@@ -1,0 +1,32 @@
+.site-sidebar {
+  padding: 20px;
+  padding-top: 10px;
+  margin-top: 40px;
+  border-top: gray dashed 1px;
+  float: left;
+
+  .about-image {
+    width: 120px;
+    float: left;
+    margin-right: 20px;
+    margin-bottom: 20px;
+
+    @media all and (min-width: 500px) {
+      width: 250px;
+    }
+  }
+}
+
+@media all and (min-width: #{$max-width + ($sidebar-width * 2)}) {
+  .site-sidebar {
+    position: fixed;
+    width: $sidebar-width - 50px;
+    top: 50%;
+    transform: translateY(-50%);
+    right: 50px;
+
+    padding-top: 0;
+    margin-top: 0;
+    border-top: none;
+  }
+}

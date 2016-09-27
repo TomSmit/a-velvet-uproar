@@ -6,7 +6,7 @@ tags:
 ---
 
 *While we were at [Sant Nicolau](http://t.umblr.com/redirect?z=https%3A%2F%2Fwww.facebook.com%2FMasSantNicolau%2F%3Ffref%3Dts&t=YzQ2ODVlMzVlMDUzNjBjM2UwNjljYjM5ZDMwYmFkODg0NzY2MDA3NCxuaTlTaEpWcw%3D%3D) we visited Girona for a day. Girona is my kind of city. Small enough to walk everywhere but big enough to feel like you are wandering around.Compared to the south of Spain, northern Spain is greener, a bit colder but the food in Spain is good everywhere, all the places we have been to the people have been real friendly and northern Spain and Girona for that matter were no exception.*
-
+<!--more-->
 I told Tom I really wanted to finish this trip in Spain. I think, for the both of us it made sense. Spain has stolen our hearts, we love the language, the food, their way of life, the people. Going to northern Spain was an easy choice. Tom had been to Barcelona before but other than that it was an undiscovered place to us. I had never, ever been before. Not even to Barcelona so we said, let’s go to Catalunya! Tom told me, ‘If we’re going there, I wanna see Girona!’ and so that’s what we did. 
 
 We have seen some cities in Spain, I mean we have been to Málaga, Granada, Córdoba, Ronda, Valencia and Madrid. All of them in some way give off this relaxed vibe. This ‘mañana vibe’, there’s always tomorrow kinda thing. Relax, have a tapa, enjoy the siesta and we’ll just simply see. Girona I liked a lot. And let me tell you why.

@@ -6,7 +6,7 @@ tags:
 ---
 
 *I will never forget the first time I saw cacti and agaves growing outside. No greenhouses needed. We had just arrived in Andalusia and when I saw all the cacti and agaves my heart was beaming with pure excitement, I was overwhelmed by their beauty. Never, never ever will I forget that moment. The beauty of the Earth struck me and looking back now, right that moment certain puzzle pieces fell into place. I realized, but realized in such a way that the thought is still very present in my mind, what is important to me and what is not. Our seven weeks at Panarea were if like, I was living that realization.*
-
+<!--more-->
 Before we headed for Panarea we were in Rome. From Rome we headed for Napoli (Naples in English) by train. We had booked a ferry from Napoli to Panarea, the journey would approx. take about 11 hours. We left Napoli about 8PM and arrived at Panarea at about 9AM. So in the end the journey took just a bit longer than expected. I remember thinking like ‘Wow, we are really far out on the sea.’ That thought lasted until I saw the outline of Sicily. Haha! Tom and I woke up early, ‘round about 6AM and we watched  the ferry dock at Stromboli on one side of the island and then on the other side of the island while smoke was coming out of the crater. Several people have told us that when it gets dark you can see it light up every twenty minutes or so. Holy shit.
 
 *Pictured above; Rosemary and Pelargonium Graveolens. Every morning and late afternoon, during our walk, we would smell them.*

@@ -6,7 +6,7 @@ tags:
 ---
 
 *While we were staying at Conciencia Grows, close to Madrid, we went and saw quite some wonderful other places as well. Today I would like to share them with you!*
-
+<!--more-->
 We went to a beautiful little town called Chinchón for an afternoon. We wandered around and found the Plaza Mayor. This plaza to us is beautiful and horrific at the same time. Beautiful, simply because the plaza is beautiful. But horrific of the bullfighting which takes place here each year over and over again. It was hard to imagine something like that happening because when we were there is what quiet en peaceful. People sitting outside, enjoying their coffee and a tapa. But of course Chinchón is also a town with amazing old, little houses and shops.
 
 We walked towards the church ‘Iglesia de Nuestra Señora de la Asunción’ and enjoyed this beautiful view! By the way inside the church there is a mural painted by Goya, when we were there though the church was closed.

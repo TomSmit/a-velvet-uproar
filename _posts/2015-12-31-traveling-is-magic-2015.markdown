@@ -6,7 +6,7 @@ tags:
 ---
 
 *I cannot believe how fast time flies. This year has been absolutely exciting, surprising and amazing. I learned a lot, I saw a lot of new places and met lovely new people. Traveling is magic, magic, magic, truly.*
-
+<!--more-->
 Here are some pictures of my year. January existed out of packing and deciding what to keep and what to throw away. January was filled with fresh excitement for our journey coming closer and closer. This year I realized traveling to me is the most real thing but at the same time, so dream-like. 
 
 The last pieces to leave our apartment in primary colors.

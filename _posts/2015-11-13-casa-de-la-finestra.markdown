@@ -6,7 +6,7 @@ tags:
 ---
 
 *We left finca La Sacristia around 7 AM in the morning. We were driven to Málaga, which was absolutely wonderful, to catch our bus to Valencia. The bus ride took 11 hours. Once in Valencia we took another bus towards Gandia, which was about a 30 minute ride. We arrived in Gandia at 10.30 PM. It was a long day, filled with amazing views. We were picked up by Allan and the drive by car to [casa de la Finestra](http://www.casadelafinestra.com/) took us another 40-ish minutes. Trixie warmheartedly welcomed us and rice with veggie-curry was waiting for us upon our arrival.*
-
+<!--more-->
 We stayed at casa de la Finestra for three weeks and were astonished by the beauty of the place. The natural surroundings are absolutely lovely. It is so green, especially after being in southern Spain for about 5 months where it is very dry. We could not but notice the greenness. Allan and Trixie created a place where all people and animals are welcome and loved.
 
 For eleven days we house sat their house and took care of their animals, while they enjoyed their vacation in Italy. We met lovely people, enjoyed the pomegranates and kaki’s, went for walks, took care of their garden among other things! Tom turned into a rescuer when Trixie found a kitten in a garbage container, with its head stuck in the drainage hole. (Yes, Tom is such a hero! Haha!) Plus Trixie took me to heaven when we went to Gandia to a store where they sell endless amounts of nuts and seeds!

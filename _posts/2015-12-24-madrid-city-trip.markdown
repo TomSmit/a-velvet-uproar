@@ -6,7 +6,7 @@ tags:
 ---
 
 *Before we headed home for the holidays we spent 5 days in Madrid. The city is full of energy, friendly people and endless vegan and vintage options. In my opinion Madrid is pretty damn wonderful!*
-
+<!--more-->
 We arrived on Friday the 4th and left on Tuesday the 8th. We stayed in an Airbnb, which we have done several times before. it is a great experience in my opinion, you stay in real neighborhoods, with the local people surrounding you. This time around we also stayed in an Airbnb but we ‘only’ had a private room. We had never done this before but it was a very pleasant experience as well. For anyone really wanting to get to know a place I would definitely recommend staying in an Airbnb.
 
 We stayed in the neighborhood called Tetuán and the Real Madrid stadium was located right down the street. This neighborhood is not very close to the city center though so we often traveled by metro. On Friday we did some grocery shopping and after the ‘siesta’ we wandered around the interesting and exciting neighborhood called Malasaña. This neighborhood is filled with vintage stores and small little shops which sell interesting and fun, little products. It is a very trendy neighborhood so lots of ‘cool’ looking restaurants and cafes also, quite some vegan restaurants as well!

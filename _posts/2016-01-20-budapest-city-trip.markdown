@@ -6,7 +6,7 @@ tags:
 ---
 
 *On the 28th of December we flew from Eindhoven to Budapest in less than an hour and a half. I remember when we stepped out of the plane and set foot on solid ground in the cold outside, my breath created condensation. From that moment on, I knew our ten days there were going to be cold and would be like real winter.*
-
+<!--more-->
 We went to Budapest to visit a good friend of mine and she truly made our stay there wonderful. She knew good places to go to and could tell us lots about Budapest and Hungary. It was my first time there and Budapest truly made an impression. Out of my friend’s stories I already heard Budapest is filled with beautiful buildings, scenery and that it has a good vibe. And truly, truly it is true! Budapest is exciting, lively but relaxed.\
 \
 For the past nine months we were in Spain and to be in a place, so different was exciting. Due to a lack of better words I would describe Budapest as a mix of Russia and Paris. Not that I have ever been to Russia but I guess it just kind of gave me that feeling. It somewhat has an old communism feeling to it. Due to gray, square like buildings scattered around the city and old, crippled man who seemed like they had been walking through the streets for ages. But also the freezing cold and the undecodable language is what made me feel like I was in such a different place. But then again there are also very colossal and baroque like buildings and well maintained, cute little parks and squares which made me feel like I was walking through Paris. If I would have to describe Budapest in one word I would go with, diverse.

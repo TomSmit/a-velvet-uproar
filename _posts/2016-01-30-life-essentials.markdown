@@ -6,7 +6,7 @@ tags:
 ---
 
 *Lately I have been thinking quite a bit about what I find important in life. Thoughts such as how do I put my beliefs, my opinions, the things I stand for on paper? And how do I get myself where I want to be spiritually, morally, even physically and consciously? Today a little something on my life essentials.*
-
+<!--more-->
 I have learned what I need in life; a somewhat different kind of living. It is not even the longing for the open road, it is the longing for new people, new situations, new experiences. Creating new possibilities and opportunities every single day. Right next to that, there is the need to express my opinions, my disbeliefs, my findings, my shock, my confusion, my love for life, people, colors, the madness, the beauty and the horror. Along with learning by doing in fields such as growing ones own organic food, sharing, sustainable building and thus living.
 
 These days my life essentials consist out of a backpack, written and spoken words, the sun (oh the sun, I want you forever), paint, love, food and water.

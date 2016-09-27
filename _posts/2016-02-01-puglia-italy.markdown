@@ -6,7 +6,7 @@ tags:
 ---
 
 *On the 8th of January we flew from Budapest, Hungary to Bari, Italy within an hour and a half. When we stepped out of the plane, a warm breeze and the bright sun welcomed us. People in front of me, seemed grateful as well when I saw them look up at the sun and happily made the ‘ahhhh’ sound. And I could not have agreed more. Hi Italy, you are beautiful.*
-
+<!--more-->
 When Tom and I were looking for a host to go to after Budapest we knew we wanted to go to south Italy because neither of us had ever been before. The Provence Puglia seemed like the perfect place to go and really, it was.\
 \
 From Bari we headed for Lecce and from there we took another train to Gagliano del Capo. The people we stayed with were closely located to Marina San Gregorio and from their house we could see the beautiful sea. It felt like it was Spring! Everything was in bloom. Wild flowers in all kinds of beautiful colors. Oh, my heart felt extremely happy. The area is filled or maybe, in better words, exists out of the endless olive tree groves. I thought southern Spain had lots of olive trees, well this, this amount blew my mind. Plus, due to this everything was green, always. It is always green because olive trees are evergreens.\

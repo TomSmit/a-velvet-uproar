@@ -7,7 +7,7 @@ image: "/uploads/IMG_1090.JPG"
 ---
 
 *Tom looked at me funny when I said to him “you should write a little something on your trip through Norway, that’ll be nice.” “Nah,” he replied. “That’s not really my thing.”*
-
+<!--more-->
 So, I guess you could say this is going to be a bit more of a quieter post. Which I think is a nice change as well. We’ll just leave you with the photographs to look at and that’ll be it. The photographs he took warmed my heart. It was so nice seeing what he had been seeing. It was like he brought with him this treasure box. I was as a kid so excited. Photographs do that to me. I could look through old photographs for hours and hours on end. They can carry so much emotion, a feeling, a vibe, an atmosphere.
 
 Tom traveled together with his father through Norway for approx. 2 weeks in a campervan headed for the house where he and his family lived in for a brief moment. Here are his photographs!

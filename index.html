@@ -2,16 +2,14 @@
 layout: default
 ---
 
-<ul class="post-list">
-    {% for post in site.posts %}
-    <li>
-        <a class="post-link" href="{{ post.url | prepend: site.baseurl }}">
-            <h2>{{ post.title | escape }}</h2>
-            <span class="post-meta">{{ post.date | date: "%b %-d, %Y" }}</span>
-            <div class="post-image" style="background-image: url({{ post.image | prepend: site.baseurl }});"></div>
-            {{ post.excerpt }}
-            <span class="read-more">Read more</span>
-        </a>
-    </li>
-    {% endfor %}
-</ul>
+{% for post in site.posts %}
+    <a class="post teaser" href="{{ post.url | prepend: site.baseurl }}">
+        <div class="image" style="background-image: url({{ post.image | prepend: site.baseurl }});"></div>
+
+        <div class="content">
+            <h2 class="title">{{ post.title | escape }}</h2>
+            <span class="date">{{ post.date | date: "%b %-d, %Y" }}</span>
+            <div class="excerpt">{{ post.excerpt | strip_html }}</div>
+        </div>
+    </a>
+{% endfor %}

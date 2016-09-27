@@ -6,7 +6,7 @@ tags:
 ---
 
 *In October we visited Valencia and what a fantastic city! There is lots to do and lots to see. It’s filled with a lot of vegan and fun vintage options. Plus it has a huge park so enough green to enjoy a more quiet day. Yes, I definitely fell in love with this city!*
-
+<!--more-->
 Our airbnb was located at the edge of the neighborhood ‘Rusaffa’ (in Valencian) or ‘Ruzafa’ (in Spanish). This neighborhood is kind of new and upcoming with loads of nice little cafes, good restaurants and fun stores! The city center of Valencia was about a 30 minute walk away and a bus stop was right by our apartment as well. We did most on foot though. On our very first day Tom and I got ourselves a tattoo at ‘[Bonjour Tattoo Parlour](http://t.umblr.com/redirect?z=https%3A%2F%2Fwww.facebook.com%2FBonjour-Tattoo-Parlour-1494242827527493%2F%3Ffref%3Dts&t=OGFmMGNlNTA2NzY4NWM4OTM2OGRiNGJlODEzYTFjZDBjODY5ZjFmYixDUDA4QlhjZw%3D%3D)’! We had been thinking about it for quite sometime and Valencia seemed like the perfect place to get them!
 
 **Restaurants**\
