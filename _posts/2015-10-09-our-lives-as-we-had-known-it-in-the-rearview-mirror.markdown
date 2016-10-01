@@ -9,9 +9,10 @@ map:
 ---
 
 *Packing, emptying our apartment, ‘goodbye’ parties and arriving at our very first host in northern Italy, pratolungo. January 2015 was our last month in our apartment in Zwolle. On February 10th (a day after Tom’s birthday) we flew from Amsterdam to Milan, Italy. The last ten days we spent at my parents’ place, busy with packing, 'goodbye’ parties and saying 'goodbye’ in general. Due to busy days it all became a bit of a blur so smaller details are lost in time and my mind.*
-![IMG_9846.JPG](/uploads/IMG_9846.JPG) <!--more-->
+![IMG_9873.JPG](/uploads/IMG_9873.JPG)<!--more-->
 
 Two things we knew for sure we wanted to learn (more) about while traveling were, number 1 learning as much as possible about growing our own crops/fruits/herbs and number 2 learning as much as possible about 'Earthships’. Of course we had our other reasons for traveling as well but these two were the main, priority ones.
+![IMG_9846.JPG](/uploads/IMG_9846.JPG)
 ![IMG_9737.JPG](/uploads/IMG_9737.JPG)
 January 2015, packing our stuff into boxes and throwing away as much as possible. (I am a sucker when it comes to throwing stuff away. Lots of things were either my grandma’s, my aunt’s, stones from Italy, self made decorations and I just cannot bring myself to throwing those items away.) In the end I was quite proud of myself, we had one whole room filled with everything that was either going to charity or, no matter what, had to be put into the bin.
 ![IMG_9868.JPG](/uploads/IMG_9868.JPG)
