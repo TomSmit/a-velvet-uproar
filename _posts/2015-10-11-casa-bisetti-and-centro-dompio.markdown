@@ -11,7 +11,7 @@ tags:
 
 For the people (which I think will be most of you) who haven’t been to Casa Bisetti and Centro d'Ompio I will explain it a bit more. Casa Bisetti is the house where all the volunteers and staff members sleep. Centro d'Ompio is a center where people, groups can come and stay. There are bedrooms where one can sleep and vegetarian food is cooked by the cooks. Centro d'Ompio facilitates several seminar rooms like the dome, the skyroom etc. where one can do workshops like yoga, massages etc. We, the volunteers, helped out with cleaning, cooking, dish washing, ironing, building… just to give you an idea of what the options were.
 
-[IMG_3858.JPG](/uploads/IMG_3858.JPG)
+![IMG_3858.JPG](/uploads/IMG_3858.JPG)
 ![IMG_38802.jpg](/uploads/IMG_38802.jpg)
 
 During our stay Jennifer from Canada, Maria from Spain, Elisabete from Portugal and Jake from the USA also joined the volunteer group. The group of volunteers was about nine people strong. As you can imagine there was always someone to talk to and to laugh with. Everyone was different and everyone had their own skill to share. We had drum circles, poetry nights, yoga classes in the morning, martial arts, Spanish classes, a photography workshop and an individual reiki session! Along with all those workshops we hiked to nearby towns like Omegna and Orta, we did a group night hike to ‘the cross’ on top of a mountain where we had a stunning view overlooking the lake. We even had an 'Earthship’ presentation from Shanti which was very interesting. During our time there, there were lots of talks about our current system and society. It triggered within me questions, inspiration and a desire to keep exploring.
