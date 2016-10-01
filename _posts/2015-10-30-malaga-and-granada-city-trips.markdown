@@ -16,7 +16,6 @@ We strolled through the nice park called ‘paseo parque’ with wonderful and b
 
 At the end of May we went to Granada for a long weekend together with Tom’s mother and her partner. From Almuñécar it takes about an hour and a half by bus.
 ![IMG_4235.JPG](/uploads/IMG_4235.JPG)
-![IMG_4224.JPG](/uploads/IMG_4224.JPG)
 We arrived on Friday and we kind of took it slow that day. We did some grocery shopping, Tom cooked us a nice meal and we just had a relaxing evening and stayed in. The next day we explored Granada and did everything by foot. Which is really nice. I think it is a nice way to explore the city and to get to know its vibe.
 ![IMG_4233uitgeknipt.jpg](/uploads/IMG_4233uitgeknipt.jpg)
 Granada’s vibe is quite interesting. Music is all around the city, I found some very interesting  (political) graffiti and unfortunately some too touristy Moorish shops. We basically walked around and just enjoyed the city with its beautiful buildings and the city is quite green with all its trees. We walked up to ‘Mirador de San Nicolás’ and we had a nice view overlooking the Alhambra. At this place there was a little market where people sold handmade things, jewelry etc. We did not go in due to the long waiting hours to get in. But just seeing it from outside is already really nice. We walked a bit further and decided to have something to eat.
@@ -24,5 +23,5 @@ Granada’s vibe is quite interesting. Music is all around the city, I found som
 A fun little fact, Granada in Spanish means pomegranate. The region is known for growing pomegranates. Plus another fun fact in the Granada province, when you order an alcoholic beverage (and sometimes even when you order a non alcoholic drink as well) you always get a free tapas. Tom and I both think this is a really nice thing about the Granada province. It kinda tells something about this area about how welcoming they are and how food is looked upon.
 ![IMG_4229.JPG](/uploads/IMG_4229.JPG)
 On Sunday Tom’s mother and her partner left quite early. So we had a little stroll throughout town, just the two of us. We visited a music store which obviously Tom was looking forward to. The sun finally really came out so we enjoyed the weather while having something to drink. And in the mid afternoon we headed for the bus station to head back to Almuñécar.
-
+![IMG_4224.JPG](/uploads/IMG_4224.JPG)
 FYI: Granada is known for its really high temperatures, especially during the summer. It can easily get up to 50 degrees. While we were there though, it was not that hot at all. We needed jackets and most the time it was quite cloudy.
