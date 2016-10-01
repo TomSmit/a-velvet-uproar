@@ -6,9 +6,8 @@ tags:
 ---
 
 *The airplane is flying above Málaga but due to some problem down at the airport we cannot land, we have to wait. The plane circles and circles in the air and due to strong wind there is lots of  turbulence. I squeeze Tom’s hand, he smiles at me, I bury my  face in his arm. I think to myself “Let us touch the ground, let us touch the ground. Please, now, please.” while we are still circling.*
-<!--more-->
+![IMG_4207.JPG](/uploads/IMG_4207.JPG) <!--more-->
 
-![IMG_4207.JPG](/uploads/IMG_4207.JPG)
 Yes, I will be the first one to confess I am a big coward when it comes to flying. So when we finally touched down in Málaga I was utterly relieved. Once we had our backpacks we headed for the bus (and another one after that) and we were on our way to Almuñécar. (Almuñécar is about 60 km away from Málaga.) The bus took us along the coast and the both of us were mesmerized by the small, white villages we saw up against the ‘mountains’. I was jumping up and down in my seat when I saw cactuses, agaves, palm trees. Cactuses mean warmth.
 
 ![IMG_4437.JPG](/uploads/IMG_4437.JPG)
