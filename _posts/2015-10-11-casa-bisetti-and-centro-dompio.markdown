@@ -8,6 +8,8 @@ tags:
 *Our time spent at Casa Bisetti and Centro d'Ompio was a wonderful one. I don’t think we could have wished for a better place to start off our journey. We met lots of kind and inspiring people, had the most interesting workshops and worked and ate lovely meals together. Our six weeks there were during the off season (beginning of February until the end of March), so not a whole lot of guests for Centro d'Ompio yet but instead a less busy  schedule  to do lots of things together as a group.*
 ![IMG_3576.jpg](/uploads/IMG_3576.jpg) <!--more-->
 
+![IMG_38802.jpg](/uploads/IMG_38802.jpg)
+![IMG_3858.JPG](/uploads/IMG_3858.JPG)
 For the people (which I think will be most of you) who haven’t been to Casa Bisetti and Centro d'Ompio I will explain it a bit more. Casa Bisetti is the house where all the volunteers and staff members sleep. Centro d'Ompio is a center where people, groups can come and stay. There are bedrooms where one can sleep and vegetarian food is cooked by the cooks. Centro d'Ompio facilitates several seminar rooms like the dome, the skyroom etc. where one can do workshops like yoga, massages etc. We, the volunteers, helped out with cleaning, cooking, dish washing, ironing, building… just to give you an idea of what the options were.
 ![IMG_3348.jpg](/uploads/IMG_3348.jpg)
 ![IMG_3351.jpg](/uploads/IMG_3351.jpg)
