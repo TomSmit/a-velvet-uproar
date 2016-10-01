@@ -12,6 +12,8 @@ Our backpacks were unpacked for four months and after those four months it was a
 ![20150728_152429.jpg](/uploads/20150728_152429.jpg)
 ![20150728_152631.jpg](/uploads/20150728_152631.jpg)
 Our second day we took it slow and went to the nearby natural spring with a waterfall and a cave! It was a bit too chilly for me to go for a swim but the sight itself was more than worth it.
+![20150728_142745.jpg](/uploads/20150728_142745.jpg)
+![20150729_170548.jpg](/uploads/20150729_170548.jpg)
 
 On our last day we left very early in the morning and took the bus back to Málaga to meet with my mom! Seeing my mom again was fun and weird. Seeing someone you know so well in a place you do not know very well is exciting. We stayed in an airbnb apartment and to get to the city center we had to go by bus or metro. (The metro in Málaga is still very new and not a whole lot of people were using it. It was a nice, quite way of traveling.) Traveling by bus is more busy but also a bit more cultural. Spanish people talking to each other rather they know each other or not. The whole experience is quite lively. Of course I had to show my mom the Picasso museum plus we went to see his birth place. We visited the CAC Málaga  which is the modern art museum of Málaga and there was a very interesting exhibition going on, lots of very political art work. The area where this museum is located is known as the ’Soho’ neighborhood. There is lots of graffiti as part of Maus Málaga, very cool!
 
