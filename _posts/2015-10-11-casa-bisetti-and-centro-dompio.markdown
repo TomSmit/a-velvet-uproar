@@ -25,4 +25,5 @@ And then there is the food. During the beginning of our stay, while there were n
 ![IMG_3387.jpg](/uploads/IMG_3387.jpg)
 ![IMG_3436.jpg](/uploads/IMG_3436.jpg)
 
+
 *Thanks again to everyone who made our stay at Centro so wonderful and for allowing me to take portraits of all of you.*
