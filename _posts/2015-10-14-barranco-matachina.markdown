@@ -9,21 +9,18 @@ tags:
 ![IMG_4207.JPG](/uploads/IMG_4207.JPG) <!--more-->
 
 Yes, I will be the first one to confess I am a big coward when it comes to flying. So when we finally touched down in Málaga I was utterly relieved. Once we had our backpacks we headed for the bus (and another one after that) and we were on our way to Almuñécar. (Almuñécar is about 60 km away from Málaga.) The bus took us along the coast and the both of us were mesmerized by the small, white villages we saw up against the ‘mountains’. I was jumping up and down in my seat when I saw cactuses, agaves, palm trees. Cactuses mean warmth.
-
 ![IMG_4437.JPG](/uploads/IMG_4437.JPG)
 ![IMG_4381.JPG](/uploads/IMG_4381.JPG)
 ![IMG_4439.JPG](/uploads/IMG_4439.JPG)
-
 We were picked up in Almuñécar by Jake and the drive up to their house took about 30 minutes. We drove passed cherimoya trees, avocado trees, orange trees… from that moment on, I knew, I like southern Spain. We stayed in a caravan plus we had our own shower, sink and toilet which were outside of the caravan. The first couple of days were still a bit cooler but soon enough the temperature was rising and I think, from that point on, it never stopped rising. We started to get to know the place, the work that needed to be done, we walked through the nearby area and fell in love with their dogs Fresa, Churro, Rosy and Diny and learned how truly kind and inspiring Jake and Nadine are.
-
 ![IMG_4304.JPG](/uploads/IMG_4304.JPG)
 ![IMG_4306.JPG](/uploads/IMG_4306.JPG)
 ![IMG_4402.JPG](/uploads/IMG_4402.JPG)
-
 We stayed at Barranco Matachina for four months, so yes, also during extremely hot July. I fell in love with cherry tomatoes (they are like some kind of sweet candy), oranges and mandarins, the hens oh, I think the list is endless! I am forever grateful how much we learned about how to grow our own crops, fruits and herbs and for having the opportunity to learn by doing it ourselves. Harvesting onions, garlic, potatoes, green beans, peas, tomatoes, sweet corn, cucumber, courgette, aubergine, peppers, chillies yes, this list is endless as well! We got extremely lucky with the food that was cooked out of these home grown products, oh it was so good!
-
+![IMG_4335.JPG](/uploads/IMG_4335.JPG)
 Tom was seriously harassed by mosquitoes, I on the other hand was perfectly fine. I was re- introduced to the magic of the Aloe Vera (Hello wonderful day creme), we met the Spanish and kindest 80 year old neighbor, we ate amazing bread from the local baker (who uses a traditional wood heated Moorish oven), down in Almuñécar I fell in love with the flower called 'bird of paradise’ and my obsession with cactuses and agaves turned serious, we both grew an affection and dislike (just kidding!) towards the bougainvillea, I learned to eat spicy food and I started painting. (But more on that in my next post!)
-
+![IMG_4330.JPG](/uploads/IMG_4330.JPG)
+![IMG_4403.JPG](/uploads/IMG_4403.JPG)
 Once Tom got his guitar back, (his father brought it with him when he drove down to southern Spain) he played and sang every single day. It was so nice to hear these familiar sounds again. The way the sounds swam in the warm air, surrounded by this beautiful nature, it was like it belonged there.
 Most of the days it was just the two of us. (Jake and Nadine both work away from home.) Sometimes we would work in silence, simply because it felt nice. Other times we would have passionate talks about organic food, chem trails, our point of view on living etc. Knowing there is someone who shares the same opinions and views on the world is relaxing. To know that there he is, the one I do not have to explain myself to. These inspiring, passionate conversations were a wonderful source for several of my paintings.
 
