@@ -7,9 +7,16 @@ tags:
 
 *The airplane is flying above Málaga but due to some problem down at the airport we cannot land, we have to wait. The plane circles and circles in the air and due to strong wind there is lots of  turbulence. I squeeze Tom’s hand, he smiles at me, I bury my  face in his arm. I think to myself “Let us touch the ground, let us touch the ground. Please, now, please.” while we are still circling.*
 <!--more-->
+
+![IMG_4207.JPG](/uploads/IMG_4207.JPG)
 Yes, I will be the first one to confess I am a big coward when it comes to flying. So when we finally touched down in Málaga I was utterly relieved. Once we had our backpacks we headed for the bus (and another one after that) and we were on our way to Almuñécar. (Almuñécar is about 60 km away from Málaga.) The bus took us along the coast and the both of us were mesmerized by the small, white villages we saw up against the ‘mountains’. I was jumping up and down in my seat when I saw cactuses, agaves, palm trees. Cactuses mean warmth.
 
+![IMG_4437.JPG](/uploads/IMG_4437.JPG)
+![IMG_4381.JPG](/uploads/IMG_4381.JPG)
+
 We were picked up in Almuñécar by Jake and the drive up to their house took about 30 minutes. We drove passed cherimoya trees, avocado trees, orange trees… from that moment on, I knew, I like southern Spain. We stayed in a caravan plus we had our own shower, sink and toilet which were outside of the caravan. The first couple of days were still a bit cooler but soon enough the temperature was rising and I think, from that point on, it never stopped rising. We started to get to know the place, the work that needed to be done, we walked through the nearby area and fell in love with their dogs Fresa, Churro, Rosy and Diny and learned how truly kind and inspiring Jake and Nadine are.
+
+![IMG_4304.JPG](/uploads/IMG_4304.JPG)
 
 We stayed at Barranco Matachina for four months, so yes, also during extremely hot July. I fell in love with cherry tomatoes (they are like some kind of sweet candy), oranges and mandarins, the hens oh, I think the list is endless! I am forever grateful how much we learned about how to grow our own crops, fruits and herbs and for having the opportunity to learn by doing it ourselves. Harvesting onions, garlic, potatoes, green beans, peas, tomatoes, sweet corn, cucumber, courgette, aubergine, peppers, chillies yes, this list is endless as well! We got extremely lucky with the food that was cooked out of these home grown products, oh it was so good!
 
