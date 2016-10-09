@@ -1,0 +1,15 @@
+.page.full {
+  p img {
+    width: 100%;
+  }
+}
+
+@media all and (min-width: 600px) {
+  .page.full {
+    p img {
+      max-width: 300px;
+      float: right;
+      margin-left: 50px;
+    }
+  }
+}
