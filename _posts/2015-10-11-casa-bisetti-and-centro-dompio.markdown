@@ -6,23 +6,22 @@ tags:
 ---
 
 *Our time spent at Casa Bisetti and Centro d'Ompio was a wonderful one. I don’t think we could have wished for a better place to start off our journey. We met lots of kind and inspiring people, had the most interesting workshops and worked and ate lovely meals together. Our six weeks there were during the off season (beginning of February until the end of March), so not a whole lot of guests for Centro d'Ompio yet but instead a less busy  schedule  to do lots of things together as a group.*
-<!--more-->
-![IMG_3576.jpg](/uploads/IMG_3576.jpg)
+![IMG_3576.jpg](/uploads/IMG_3576.jpg) <!--more-->
 
-For the people (which I think will be most of you) who haven’t been to Casa Bisetti and Centro d'Ompio I will explain it a bit more. Casa Bisetti is the house where all the volunteers and staff members sleep. Centro d'Ompio is a center where people, groups can come and stay. There are bedrooms where one can sleep and vegetarian food is cooked by the cooks. Centro d'Ompio facilitates several seminar rooms like the dome, the skyroom etc. where one can do workshops like yoga, massages etc. We, the volunteers, helped out with cleaning, cooking, dish washing, ironing, building… just to give you an idea of what the options were.
-
-[IMG_3858.JPG](/uploads/IMG_3858.JPG)
 ![IMG_38802.jpg](/uploads/IMG_38802.jpg)
-
-During our stay Jennifer from Canada, Maria from Spain, Elisabete from Portugal and Jake from the USA also joined the volunteer group. The group of volunteers was about nine people strong. As you can imagine there was always someone to talk to and to laugh with. Everyone was different and everyone had their own skill to share. We had drum circles, poetry nights, yoga classes in the morning, martial arts, Spanish classes, a photography workshop and an individual reiki session! Along with all those workshops we hiked to nearby towns like Omegna and Orta, we did a group night hike to ‘the cross’ on top of a mountain where we had a stunning view overlooking the lake. We even had an 'Earthship’ presentation from Shanti which was very interesting. During our time there, there were lots of talks about our current system and society. It triggered within me questions, inspiration and a desire to keep exploring.
-
+![IMG_3858.JPG](/uploads/IMG_3858.JPG)
+For the people (which I think will be most of you) who haven’t been to Casa Bisetti and Centro d'Ompio I will explain it a bit more. Casa Bisetti is the house where all the volunteers and staff members sleep. Centro d'Ompio is a center where people, groups can come and stay. There are bedrooms where one can sleep and vegetarian food is cooked by the cooks. Centro d'Ompio facilitates several seminar rooms like the dome, the skyroom etc. where one can do workshops like yoga, massages etc. We, the volunteers, helped out with cleaning, cooking, dish washing, ironing, building… just to give you an idea of what the options were.
 ![IMG_3348.jpg](/uploads/IMG_3348.jpg)
 ![IMG_3351.jpg](/uploads/IMG_3351.jpg)
-![IMG_3421.jpg](/uploads/IMG_3421.jpg)
-
-And then there is the food. During the beginning of our stay, while there were no guests yet, one person would cook and we would eat at Casa Bisetti. Like the picture above we would all enjoy a good meal together. In this particular picture we are eating Mexican food prepared by (L.A.) Michael, spicy, amazing Mexican food. I think everyone was extra full and satisfied that night. Further into our stay groups (guests) arrived at Centro and so the cooks arrived as well. This meant we ate breakfast, lunch and diner at Centro. Every meal was vegetarian. Tom and I were quite content with this, or more so, quite happy with it. Back in the Netherlands we talked about this topic quite a bit. We felt this uneasy feeling when we ate meat. So to be in a place where no meat was served, was a good way of seeing how we would do without it. One morning Gori prepared banana pancakes (bananas instead of eggs) for everyone and they were delicious! We later (late August) tried this recipe ourselves but more on that in a future post! We left the Netherlands knowing we wanted something different, so to speak, we wanted to see big changes in our way of eating and here at our very first host it was already happening!
-
 ![IMG_3387.jpg](/uploads/IMG_3387.jpg)
+During our stay Jennifer from Canada, Maria from Spain, Elisabete from Portugal and Jake from the USA also joined the volunteer group. The group of volunteers was about nine people strong. As you can imagine there was always someone to talk to and to laugh with. Everyone was different and everyone had their own skill to share. We had drum circles, poetry nights, yoga classes in the morning, martial arts, Spanish classes, a photography workshop and an individual reiki session! Along with all those workshops we hiked to nearby towns like Omegna and Orta, we did a group night hike to ‘the cross’ on top of a mountain where we had a stunning view overlooking the lake. We even had an 'Earthship’ presentation from Shanti which was very interesting. During our time there, there were lots of talks about our current system and society. It triggered within me questions, inspiration and a desire to keep exploring.
+![IMG_3421.jpg](/uploads/IMG_3421.jpg)
+![IMG_3648.jpg](/uploads/IMG_3648.jpg)
 ![IMG_3436.jpg](/uploads/IMG_3436.jpg)
-
+And then there is the food. During the beginning of our stay, while there were no guests yet, one person would cook and we would eat at Casa Bisetti. Like the picture above we would all enjoy a good meal together. In this particular picture we are eating Mexican food prepared by (L.A.) Michael, spicy, amazing Mexican food. I think everyone was extra full and satisfied that night. Further into our stay groups (guests) arrived at Centro and so the cooks arrived as well. This meant we ate breakfast, lunch and diner at Centro. Every meal was vegetarian. Tom and I were quite content with this, or more so, quite happy with it. Back in the Netherlands we talked about this topic quite a bit. We felt this uneasy feeling when we ate meat. So to be in a place where no meat was served, was a good way of seeing how we would do without it. One morning Gori prepared banana pancakes (bananas instead of eggs) for everyone and they were delicious! We later (late August) tried this recipe ourselves but more on that in a future post! We left the Netherlands knowing we wanted something different, so to speak, we wanted to see big changes in our way of eating and here at our very first host it was already happening!
+!![IMG_3683.jpg](/uploads/IMG_3683.jpg)
+![IMG_3629.jpg](/uploads/IMG_3629.jpg)
+![IMG_3675.jpg](/uploads/IMG_3675.jpg)
+![IMG_3610.jpg](/uploads/IMG_3610.jpg)
 *Thanks again to everyone who made our stay at Centro so wonderful and for allowing me to take portraits of all of you.*
+![IMG_3645.jpg](/uploads/IMG_3645.jpg)
