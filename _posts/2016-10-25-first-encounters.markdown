@@ -26,3 +26,4 @@ Arriving in São Paulo was a reality check. I don’t even know how to begin to 
 ![IMG_5666.JPG](/uploads/IMG_5666.JPG)
 ![IMG_5691.JPG](/uploads/IMG_5691.JPG)
 ![IMG_5699.JPG](/uploads/IMG_5699.JPG)
+![IMG_5671.JPG](/uploads/IMG_5671.JPG)
