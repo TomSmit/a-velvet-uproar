@@ -8,6 +8,7 @@ image: "/uploads/IMG_5633.JPG"
 ---
 
 *I have gone from happiness to sadness to disbelief to embarrassment (and) to excitement. More than ever before have I become aware of the bubble of which I live in, in which I think, most of us or at least a lot of us live in. And I have found them in so many different places; from small matters to embarrassingly huge matters.*<!--more-->
+
 ![IMG_5643.JPG](/uploads/IMG_5643.JPG)
 Mostly I have been noticing what is lacking in this world is what I am lacking myself. Let’s share, let’s talk. Let’s open our goddamn eyes. Be aware, be active. Let’s participate. Help. I don’t know, give more fucks in general.
 
