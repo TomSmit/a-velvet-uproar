@@ -19,4 +19,8 @@ Recently I wrote ‘Life is really incredible’. I think never before did four 
 
 Arriving in São Paulo was a reality check. I don’t even know how to begin to describe the city. I learned São Paulo is the biggest city of the whole entire southern hemisphere and I think that simple fact might describe it best. Looking back at it now, São Paulo was a mixture of lots of noise, lots of people and lots of graffiti. But also the place where the thoughts I had been having were given space to be spoken out loud. A place where I felt like there was room for real talk, no nonsense.
 ![IMG_5633.JPG](/uploads/IMG_5633.JPG)
-![IMG_5649.JPG](/uploads/IMG_5649.JPG) ![IMG_5648.JPG](/uploads/IMG_5648.JPG)
+![IMG_5649.JPG](/uploads/IMG_5649.JPG)
+![IMG_5648.JPG](/uploads/IMG_5648.JPG)
+![IMG_5656.JPG](/uploads/IMG_5656.JPG)
+![IMG_5661.JPG](/uploads/IMG_5661.JPG)
+![IMG_5666.JPG](/uploads/IMG_5666.JPG)
