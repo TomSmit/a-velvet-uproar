@@ -11,6 +11,7 @@ image: "/uploads/IMG_5742.JPG"
 Tekst......................
 ![IMG_5721.JPG](/uploads/IMG_5721.JPG)
 ![IMG_5718.JPG](/uploads/IMG_5718.JPG)
+![IMG_5780.JPG](/uploads/IMG_5780.JPG)
 ![IMG_5790.JPG](/uploads/IMG_5790.JPG)
 ![IMG_5787.JPG](/uploads/IMG_5787.JPG)
 ![IMG_5709.JPG](/uploads/IMG_5709.JPG)
