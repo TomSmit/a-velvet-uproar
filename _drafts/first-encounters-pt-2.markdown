@@ -20,7 +20,7 @@ Tekst......................
 ![IMG_5742.JPG](/uploads/IMG_5742.JPG)
 ![IMG_5757.JPG](/uploads/IMG_5757.JPG)
 ![IMG_5790.JPG](/uploads/IMG_5790.JPG)
+![IMG_5787.JPG](/uploads/IMG_5787.JPG)
 ![IMG_5780.JPG](/uploads/IMG_5780.JPG)
 ![IMG_5779.JPG](/uploads/IMG_5779.JPG)
 ![IMG_5772.JPG](/uploads/IMG_5772.JPG)
-![IMG_5787.JPG](/uploads/IMG_5787.JPG)
