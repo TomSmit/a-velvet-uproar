@@ -5,6 +5,9 @@ tags:
 - "#TomandLisadoSouthAmerica"
 - "#Brazil"
 image: "/uploads/IMG_5633.JPG"
+map:
+  latitude: -23.533773
+  longitude: -46.62529
 ---
 
 *I have gone from happiness to sadness to disbelief to embarrassment (and) to excitement. More than ever before have I become aware of the bubble of which I live in, in which I think, most of us or at least a lot of us live in. And I have found them in so many different places; from small matters to embarrassingly huge matters.*<!--more-->
