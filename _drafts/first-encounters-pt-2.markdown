@@ -23,5 +23,4 @@ Tekst......................
 ![IMG_5780.JPG](/uploads/IMG_5780.JPG)
 ![IMG_5779.JPG](/uploads/IMG_5779.JPG)
 ![IMG_5772.JPG](/uploads/IMG_5772.JPG)
-
 ![IMG_5787.JPG](/uploads/IMG_5787.JPG)
