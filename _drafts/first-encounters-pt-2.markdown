@@ -15,11 +15,11 @@ Tekst......................
 ![IMG_5709.JPG](/uploads/IMG_5709.JPG)
 ![IMG_5703.JPG](/uploads/IMG_5703.JPG)
 ![IMG_5729.JPG](/uploads/IMG_5729.JPG)
+![IMG_5789.JPG](/uploads/IMG_5789.JPG)
 
 ![IMG_5790.JPG](/uploads/IMG_5790.JPG)
 ![IMG_5765.JPG](/uploads/IMG_5765.JPG)
 ![IMG_5742.JPG](/uploads/IMG_5742.JPG)
-![IMG_5789.JPG](/uploads/IMG_5789.JPG)
 ![IMG_5757.JPG](/uploads/IMG_5757.JPG)
 ![IMG_5780.JPG](/uploads/IMG_5780.JPG)
 ![IMG_5779.JPG](/uploads/IMG_5779.JPG)
