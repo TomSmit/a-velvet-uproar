@@ -6,7 +6,7 @@ tags:
 - "#Brazil"
 image: "/uploads/IMG_5742.JPG"
 map:
-  latitude: 23.533773
+  latitude: -23.533773
   longitude: -46.62529
 ---
 
