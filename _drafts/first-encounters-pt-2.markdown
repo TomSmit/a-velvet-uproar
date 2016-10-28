@@ -9,6 +9,8 @@ image: "/uploads/IMG_5742.JPG"
 
 ![LQJV2340.jpg](/uploads/LQJV2340.jpg)
 Tekst......................
+![IMG_5721.JPG](/uploads/IMG_5721.JPG)
+![IMG_5718.JPG](/uploads/IMG_5718.JPG)
 ![IMG_5787.JPG](/uploads/IMG_5787.JPG)
 ![IMG_5709.JPG](/uploads/IMG_5709.JPG)
 ![IMG_5765.JPG](/uploads/IMG_5765.JPG)
@@ -19,8 +21,6 @@ Tekst......................
 ![IMG_5780.JPG](/uploads/IMG_5780.JPG)
 ![IMG_5779.JPG](/uploads/IMG_5779.JPG)
 ![IMG_5772.JPG](/uploads/IMG_5772.JPG)
-![IMG_5718.JPG](/uploads/IMG_5718.JPG)
-![IMG_5721.JPG](/uploads/IMG_5721.JPG)
 ![IMG_5703.JPG](/uploads/IMG_5703.JPG)
 ![IMG_5716.JPG](/uploads/IMG_5716.JPG)
 ![IMG_5729.JPG](/uploads/IMG_5729.JPG)
