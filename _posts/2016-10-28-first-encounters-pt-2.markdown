@@ -20,7 +20,7 @@ When we left São Paulo, the favelas made me cry. This is fucking reality I thou
 
 In São Paulo we went to an exhibition where paintings of Portinari were shown. Never before was I able to draw so much strength out of paintings. Oh, how painting can be such a tool.
 
-During our bus ride towards Guaratingueta I told myself I need to finish watching ‘Ó paí, ó’ and ‘Ciudad de Dius’. Two movies I wasn’t able to finish watching due to my jet-lag. Plus I want to find good Samba music and learn the basic steps ánd eat endless amounts of açai ‘icecream’ and tapioca before leaving Brazil. We headed for our first Workaway while my mind was spinning and my heart on fire.
+During our bus ride towards Guaratingueta I told myself I need to finish watching ‘Ó paí, ó’ and ‘Cidade de Deus’. Two movies I wasn’t able to finish watching due to my jet-lag. Plus I want to find good Samba music and learn the basic steps ánd eat endless amounts of açai ‘ice cream’ and tapioca before leaving Brazil. We headed for our first Workaway while my mind was spinning and my heart on fire.
 
 Oh, first encounters, you bittersweet thing.
 ![IMG_5721.JPG](/uploads/IMG_5721.JPG)
