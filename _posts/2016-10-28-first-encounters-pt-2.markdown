@@ -10,7 +10,7 @@ map:
   longitude: -46.62529
 ---
 
-*I am trying to push aside, almost ignore, the presence of feeling like a goddamn lucky European girl who endlessly whines when writing. Is it even my story to tell everything I am seeing?  Honestly, I don’t know. *<!--more-->
+*I am trying to push aside, almost ignore, the presence of feeling like a goddamn lucky European girl who endlessly whines when writing. Is it even my story to tell everything I am seeing?  Honestly, I don’t know.* <!--more-->
 
 ![LQJV2340.jpg](/uploads/LQJV2340.jpg)
 
