@@ -12,4 +12,4 @@ image: "/uploads/IMG_1378.JPG"
 ![IMG_1375.JPG](/uploads/IMG_1375.JPG)
 ![IMG_1372.JPG](/uploads/IMG_1372.JPG)
 
-And I am like what are you talking about? 
+And I am like what are you talking about? This is just how I feel. When we arrived at Source Temple and I saw a sign which said something about ´god´ my hair was immediately raised and my mind a bit doubtful. 
