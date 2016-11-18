@@ -19,3 +19,7 @@ After São Paulo and its urban jungle, my mind was nowhere near willing and read
 ![IMG_1391.JPG](/uploads/IMG_1391.JPG)
 ![IMG_1396.JPG](/uploads/IMG_1396.JPG)
 ![IMG_1403.JPG](/uploads/IMG_1403.JPG)
+
+Especially my first week there I couldn´t ´go with the flow´. My thoughts kept coming back at me. Hello! There´s life out there! Shit! Pain! Unfairness! Division!
+
+But it made me realize in this fase of my life, I am focusing on other things then questioning and wondering who I am, what I want and where I am going. It very much feels like during our European trip I asked myself those questions and for now at least I know the answers. Right now I have no desire to go back to that beginning again. Right now, I truly feel like I want action, creation, realiyation. Above all, I think, this time requires different questions.
