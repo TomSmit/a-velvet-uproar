@@ -26,3 +26,4 @@ But it made me realize this time of my life, I am focusing on other things then 
 
 At Source Temple, as lovely and peaceful as the place was, I couldn´t find room for the things that are boiling within me. I simply couldn´t find what I feel like I need right now and that is okay. Once I realized this being there became easier for me as well. 
 
+!
