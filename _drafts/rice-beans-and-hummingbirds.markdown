@@ -32,3 +32,4 @@ Along with that I saw hummingbirds. They remind me of my time in the US back whe
 Upon my first arrival it made me feel like I had to ignore things, abandon the profound thoughts I was having. If like I had to adabt to their vibe and once I realized I did not have to, I could feel myself becoming less and less tense about it all. 
 
 Maybe I didn´t have the deepest connection at Source Temple but I realized that is also okay. I couldn´t close my eyes, right after they felt like they had been opened wide. But each process is a process so here´s to that, truly.
+![IMG_1488.JPG](/uploads/IMG_1488.JPG)
