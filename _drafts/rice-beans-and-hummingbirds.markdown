@@ -21,9 +21,6 @@ Especially my first week there I couldn´t ´go with the flow´. My thoughts kep
 But it made me realize this time of my life, I am focusing on other things then questioning and wondering who I am, what I want and where I am going. It very much feels like during our European trip I asked myself those questions and for now at least I know the answers. Right now I have no desire to go back to that beginning again. Right now, I truly feel like I want action, creation, realization. Above all, I think, this time requires different questions.
 ![IMG_1389.JPG](/uploads/IMG_1389.JPG)
 ![IMG_1391.JPG](/uploads/IMG_1391.JPG)
-At Source Temple, as lovely and peaceful as the place was, I couldn´t find room for the things that are boiling within me. I simply couldn´t find what I feel like I need right now and that is okay. Once I realized this being there became easier for me as well.
-
-
 Looking back now, I see I felt like at this time in my life I could not relate to the 'tools' they were offering and the vibe that is present there. I truly realized right now my mind is going through different stuff. I am 'busy' with other things, wanting to focus on other matters. These differences, if you will, made it more tough for me to connect to Source Temple but above all I learned that is ok. 
 
 I told myself ok, just focus on your own thoughts, write them down, give them room to breathe and grow and allow yourself to be less tense and relax through the process. Once I did that it also became easier to be less tense about the place as well. I could look at it all from a bit of a distance. I ended up really enjoying the people and the surrounding nature.
