@@ -7,4 +7,3 @@ tags:
 image: "/uploads/IMG_1408.JPG"
 ---
 
-g
