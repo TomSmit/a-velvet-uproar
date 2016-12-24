@@ -1,6 +1,6 @@
 ---
 title: Rice, beans and hummingbirds
-date: 2016-11-26 17:59:00 Z
+date: 2016-12-24 17:59:00 Z
 tags:
 - "#Brazil"
 - "#TomandLisadoSouthAmerica"
