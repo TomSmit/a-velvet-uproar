@@ -28,7 +28,7 @@ It was my first time seeing the southern atlantic ocean and seeing monkeys on ou
 It is still difficult for me to wrap my mind around the favelas I saw from afar. Along with that seeing these adds of hostels located in the favelas with captions like 'enjoy the favela experience'. I cannot help but think 'Poverty is not a goddamn experience'. But then again maybe it are the people truly living there, trying to make a living.
 ![IMG_6017.JPG](/uploads/IMG_6017.JPG)
 ![IMG_6011.JPG](/uploads/IMG_6011.JPG)
-Rio was seeing the idealic picture of coconuts with a straw peaking out, beautiful views, enjoying our time with Fleur, Nina and Greg, seeing way too little  of Santa Teresa, beach time, enjoying the botanical garden, for some reason picturing Carmen Miranda in my mind, feeling a relaxed vibe true the city and eating acai at the busstation.
+Rio was seeing the idealic picture of people drinking out of a coconut through a straw, beautiful views, enjoying our time with Fleur, Nina and Greg, seeing way too little  of Santa Teresa, beach time, enjoying the botanical garden, for some reason picturing Carmen Miranda in my mind, feeling a relaxed vibe trough the city and eating acai at the busstation.
 ![IMG_6082.JPG](/uploads/IMG_6082.JPG)
 ![IMG_6076.JPG](/uploads/IMG_6076.JPG)
 ![IMG_6083.JPG](/uploads/IMG_6083.JPG)
