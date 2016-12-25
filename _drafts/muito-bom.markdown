@@ -29,6 +29,7 @@ It is still difficult for me to wrap my mind around the favelas I saw from afar.
 Rio was seeing the idealic picture of coconuts with a straw peaking out, beautiful views, enjoying our time with Fleur, Nina and Greg, seeing way too little  of Santa Teresa, beach time, enjoying the botanical garden, for some reason picturing Carmen Miranda in my mind, feeling a relaxed vibe true the city and eating acai at the busstation.
 ![IMG_6082.JPG](/uploads/IMG_6082.JPG)
 ![IMG_6076.JPG](/uploads/IMG_6076.JPG)
-![IMG_6077.JPG](/uploads/IMG_6077.JPG)
+![IMG_6083.JPG](/uploads/IMG_6083.JPG)
+![IMG_6093.JPG](/uploads/IMG_6093.JPG)
 We ate our acai while waiting for our bus to leave for Florianopolis. Yep, a 21 but actually a 23 hour busride and off we went, once more.
 ![IMG_6115.JPG](/uploads/IMG_6115.JPG)
