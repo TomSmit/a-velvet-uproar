@@ -4,6 +4,7 @@ date: 2016-12-27 19:42:00 Z
 tags:
 - "#Brazil"
 - "#TomandLisadoSouthAmerica"
+image: "/uploads/IMG_5909.JPG"
 ---
 
 *I think Rio is the kind of place where you can't help but have a certain picture in mind of what the city is like. In certain ways, all is true. Long beaches, christ the redeemer, jungle, sugarloaf mountain and the favelas up against the mountains. But it was also so much more than that.*<!--more-->
