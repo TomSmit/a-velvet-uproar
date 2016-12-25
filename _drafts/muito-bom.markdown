@@ -23,6 +23,8 @@ Earlier we learned about 'uber' and in Rio we really got to know it. Along with 
 ![IMG_6051.JPG](/uploads/IMG_6051.JPG)
 It was my first time seeing the southern atlantic ocean when we sat down by the beach and seeing monkeys on our walk down from christ.
 ![IMG_5950.JPG](/uploads/IMG_5950.JPG)
+![IMG_6095.JPG](/uploads/IMG_6095.JPG)
+![IMG_6102.JPG](/uploads/IMG_6102.JPG)
 It is still difficult for me to wrap my mind around the favelas I saw from afar. Along with that seeing these adds of hostels located in the favelas with captions like 'enjoy the favela experience'. I cannot help but think 'Poverty is not a goddamn experience'. But then again maybe it are the people truly living there, trying to make a living.
 ![IMG_6017.JPG](/uploads/IMG_6017.JPG)
 ![IMG_6011.JPG](/uploads/IMG_6011.JPG)
