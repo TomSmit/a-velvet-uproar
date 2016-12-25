@@ -9,12 +9,12 @@ image: "/uploads/IMG_5909.JPG"
 
 *I think Rio is the kind of place where you can't help but have a certain picture in mind of what the city is like. In certain ways, all is true. Long beaches, christ the redeemer, jungle, sugarloaf mountain and the favelas up against the mountains. But it is also so much more than that.*<!--more-->
 ![IMG_5908.JPG](/uploads/IMG_5908.JPG)
-After Source Temple we went to Rio and to me it in a sense felt like going back to reality. It was one of the first times a city made me feel like I had room to breathe. The busride there took approx. about 4 hours, previously the carride from Source Temple to Guaratingueta brought up some motion sickness. I think it was a combination of sandy, bumpy roads, fast driving and all the feelings that surfaced while leaving our first workaway in Brazil. We went to Rio together with three other volunteers which we met Source Temple.
+After Source Temple we went to Rio and to me it in a way felt like going back to reality. It was one of the first times a city made me feel like I had room to breathe. The bus ride there took approx. about 4 hours, previously the car ride from Source Temple to Guaratingueta brought up some motion sickness. I think it was a combination of sandy, bumpy roads, fast driving and all the feelings that surfaced while leaving our first workaway in Brazil. We went to Rio together with three other volunteers which we met at Source Temple.
 ![IMG_5895.JPG](/uploads/IMG_5895.JPG)
-The busride was beautiful. We passed along lush, green hills and I remember thinking 'it looks so jungly' while listening to music that was playing through my headphones and relaxing next to Tom.
+The bus ride was beautiful. We passed along lush, green hills and I remember thinking 'it looks so jungly' while listening to some music that was playing through my headphones and relaxing next to Tom.
 ![IMG_6004.JPG](/uploads/IMG_6004.JPG)
 ![IMG_6010.JPG](/uploads/IMG_6010.JPG)
-It wasn't hard to notice when we got closer to Rio, the suburbs made it very clear. It was the same when the taxi drove us through São Paulo from the airport to our friend's house. I felt like my eyes couldn't take in all that I was seeing. So many things caught my attention. The same happened to me when we arrived in Rio de Janeiro.
+It wasn't hard to notice when we got closer to Rio, the subburbs made it very clear. It was the same when the taxi drove us through São Paulo from the airport to our friend's house. I felt like my eyes couldn't take it all in. So many things caught my attention. The same happened to me when we arrived in Rio de Janeiro.
 ![IMG_5914.JPG](/uploads/IMG_5914.JPG)
 ![IMG_5940.JPG](/uploads/IMG_5940.JPG)
 ![IMG_5969.JPG](/uploads/IMG_5969.JPG)
