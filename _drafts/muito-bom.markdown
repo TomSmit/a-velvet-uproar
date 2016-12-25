@@ -9,7 +9,7 @@ image: "/uploads/IMG_5909.JPG"
 
 *I think Rio is the kind of place where you can't help but have a certain picture in mind of what the city is like. In certain ways, all is true. Long beaches, christ the redeemer, jungle, sugarloaf mountain and the favelas up against the mountains. But it is also so much more than that.*<!--more-->
 ![IMG_5908.JPG](/uploads/IMG_5908.JPG)
-After Source Temple we went to Rio and to me it in a way felt like going back to reality. It was one of the first times a city made me feel like I had room to breathe. The bus ride there took approx. about 4 hours, previously the car ride from Source Temple to Guaratingueta brought up some motion sickness. I think it was a combination of sandy, bumpy roads, fast driving and all the feelings that surfaced while leaving our first workaway in Brazil. We went to Rio together with three other volunteers which we met at Source Temple.
+After Source Temple we went to Rio and to me it in a way felt like going back to reality. It was one of the first times a city made me feel like I had room to breathe. The bus ride there took about 4 hours, previously the car ride from Source Temple to Guaratingueta brought up some motion sickness. I think it was a combination of sandy, bumpy roads, fast driving and all the feelings that surfaced while leaving our first workaway in Brazil. We went to Rio together with three other volunteers which we met at Source Temple.
 ![IMG_5895.JPG](/uploads/IMG_5895.JPG)
 The bus ride was beautiful. We passed along lush, green hills and I remember thinking 'it looks so jungly' while listening to some music that was playing through my headphones and relaxing next to Tom.
 ![IMG_6004.JPG](/uploads/IMG_6004.JPG)
