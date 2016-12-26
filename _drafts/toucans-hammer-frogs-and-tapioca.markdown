@@ -4,10 +4,11 @@ date: 2016-12-30 23:58:00 Z
 tags:
 - "#Brazil"
 - "#TomandLisadoSouthAmerica"
+image: "/uploads/IMG_1657.JPG"
 ---
 
 *After a 23 hour ride we arrived in Florianópolis and before going to our next workaway we booked an Airbnb for two nights to have some time for ourselves and to hard core relax after the long bus ride. We didn't do too much when we were there. We enjoyed the swimmingpool, strolled around and enjoyed some good vegan food.*<!--more-->
-
+![IMG_1545.JPG](/uploads/IMG_1545.JPG)
 We learned about Infreenity community at our precious workaway. The group that started Infreenity was a group of volunteers that was there before us. Upon arriving at Infreenity community we stared at a small opening into a wall of jungle. We decided to wait for a little bit since the path didn't quite bring us to the site. A neighbour came out and started talking to us. The thing with Portuguese is when you see it written down it kinda looks like Spanish but when they speak it, it is a whole different story. So we tried to explain to the woman we were merely waiting but she kept talking and talking. 'No entiendo' and trying to use body language to get our point across, it all did not make a difference. At some point we heard noises coming from the jungle and that is when we met Satya and Miquel! 
 
 They brought us to the site and there we met Leela and Hien as well. Oh man, our month there was a real good one. We really had a very good time. We cleared lots of land, the guys constructed a tube for running water from the stream so we didn't have to get it with buckets anymore, Tom built a compost structure together with Miquel, I often cooked together with Hien (as well as at Source Temple as at Infreenity we cooked rice and beans everyday and I got to love it so much. It is like the perfect combo taste wise and satisfaction wise) a shower was built and even if I say so myself Leela and I created an awesome entrance! All of us had a love-hate relationship with the 'f*cking vines'. They literally were everywhere and they slowly over time kill all the trees. Clearing land meant pulling and pulling the endless vines out. But truly you can create some really cool stuff with those 'f*cking vines' as well, that is how we all ended up naming them. On a complete side note throughout Brazil I got to know tapioca. I made a promise to myself to indulge myself into eating this and at Infreenity I did. 
