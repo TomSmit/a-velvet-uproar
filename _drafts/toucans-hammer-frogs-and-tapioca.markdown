@@ -25,7 +25,7 @@ For me, personally, looking back now my time there stands for going back to basi
 When it got to be November 9 I realized my grandmother passed away 3 years ago and it was in such big contrast with hearing the news of Trump being elected through text message. What I remember thinking was 'What the actual f\*ck?!' And that I wanted to punch something. Not because I was feeling agressive but because there was such an unsettled force of energy within me. That night I was sad for the world. It also unsettled me, above all it told me how much people are not believing all of anything anymore. That people are grasping at someone saying such outrageous things and he still seems like the better option, that has got to tell us something.
 
 I hope the world is willing to be ready for change, the whole Trump thing aside.
-!
+![2.JPG](/uploads/2.JPG)
 One thought I am still trying to look at from all sides is, how at all the places we have been thus far, the people tend to live in their own created world. The outside world is almost left aside. I have been battling with that. To not talk politics, the system, poverty (the list is endless) to me feels like a cheap betrayal to the outside world. The two words I have heard that create conflict in my mind are 'our reality'. I am not quite sure yet if I think either we all should start creating our own reality from a completely different place we have thus far known. Or that instead of looking at it as not our reality to realize we are all responsable for tackling this outside world, this reality most people still believe in.
 ![IMG_1623.JPG](/uploads/IMG_1623.JPG)
 ![IMG_1652.JPG](/uploads/IMG_1652.JPG)
