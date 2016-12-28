@@ -33,12 +33,12 @@ One thought I am still trying to look at from all sides is, how at all the place
 ![IMG_1652.JPG](/uploads/IMG_1652.JPG)
 It seems to me that to abandon this world most people know completely, is (for me) creating more walls and I believe what we need right now are bridges, a fuck load of them.
 ![IMG_1647.JPG](/uploads/IMG_1647.JPG)
-I feel a great responsibilty to people living in lesser conditions. How can we turn away from that? Put it aside. I was merely luckily of where I was born. We are all so very much connected and we have to, we need to come together. To force this energy to change. We all as a mass need to be heard, together.
+I feel a great responsibilty to the world, to humanity. To people living in lesser conditions. How can we turn away from that? Put it aside. I was merely luckily of where I was born. We are all so very much connected and we have to, we need to come together. To force this energy to change. We all as a mass need to be heard, together.
 ![IMG_6433.JPG](/uploads/IMG_6433.JPG)
 ![IMG_6504.JPG](/uploads/IMG_6504.JPG)
 ![IMG_6294.JPG](/uploads/IMG_6294.JPG)
 ![IMG_6211.JPG](/uploads/IMG_6211.JPG)
-
+So, yes that is where I will leave it for now I think. I will for ever remember this; eye openers, other mindsets, nature and space to grow.
 ![IMG_6287.JPG](/uploads/IMG_6287.JPG)
 ![IMG_6525.JPG](/uploads/IMG_6525.JPG)
 ![IMG_6548.JPG](/uploads/IMG_6548.JPG)
