@@ -7,7 +7,7 @@ tags:
 image: "/uploads/IMG_1657.JPG"
 ---
 
-*After a 23 hour ride we arrived in Florianópolis and before going to our next workaway we booked an Airbnb for two nights to have some time for ourselves and to hard core relax after the long bus ride. We didn't do too much when we were there. We enjoyed the swimmingpool, strolled around and enjoyed some good vegan food.*<!--more-->
+*After a 23 hour ride we arrived in Florianópolis and before going to our next workaway we booked an Airbnb for two nights to have some time for ourselves and to hard core relax after the long bus ride. We didn't do too much once we got to Florianópolis. We enjoyed the swimmingpool, strolled around and enjoyed some good vegan food.*<!--more-->
 ![IMG_6128.JPG](/uploads/IMG_6128.JPG)
 ![IMG_6167.JPG](/uploads/IMG_6167.JPG)
 ![IMG_6170.JPG](/uploads/IMG_6170.JPG)
