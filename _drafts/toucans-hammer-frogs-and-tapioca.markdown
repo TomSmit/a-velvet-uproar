@@ -41,5 +41,3 @@ I feel a great responsibilty to the world, to humanity. To people living in less
 So, yes that is where I will leave it for now I think. I will for ever remember this; eye openers, other mindsets, nature and new spaces to grow.
 ![IMG_6287.JPG](/uploads/IMG_6287.JPG)
 (Pictured above, a drawing Hien made of me, Lisa)
-![IMG_6525.JPG](/uploads/IMG_6525.JPG)
-![IMG_6548.JPG](/uploads/IMG_6548.JPG)
