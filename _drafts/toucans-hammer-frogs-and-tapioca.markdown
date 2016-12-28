@@ -31,7 +31,7 @@ I hope the world is willing to be ready for change, the whole Trump thing aside.
 ![2.JPG](/uploads/2.JPG)
 One thought I am still trying to look at from all sides is, how at all the places we have been thus far, the people tend to live in their own created world. The outside world is almost left aside. I have been battling with that. To not talk politics, the system, poverty (the list is endless) to me feels like a cheap betrayal to humanity. The two words I have heard that create conflict in my mind are 'our reality'. I am not quite sure yet if I think either we all should start creating our own reality from a completely different place we have thus far known. Or instead of looking at it as not our reality to realize we are all responsible for tackling this world, this reality most people still believe in.
 ![IMG_1652.JPG](/uploads/IMG_1652.JPG)
-It seems to me that to abandon this world most people know completely, is (for me) creating more walls and I believe what we need right now are bridges, a fuck load of them.
+It seems to me that to abandon this world, most people (still) know as the reality, completely, is (for me) creating more walls and I believe what we need right now are bridges, a fuck load of them.
 ![IMG_1647.JPG](/uploads/IMG_1647.JPG)
 I feel a great responsibilty to the world, to humanity. To people living in lesser conditions. How can we turn away from that? Put it aside. I was merely luckily of where I was born. We are all so very much connected and we have to, we need to come together. To force this energy to change. We all as a mass need to be heard, together.
 ![IMG_6433.JPG](/uploads/IMG_6433.JPG)
