@@ -38,7 +38,7 @@ I feel a great responsibilty to the world, to humanity. To people living in less
 ![IMG_6504.JPG](/uploads/IMG_6504.JPG)
 ![IMG_6294.JPG](/uploads/IMG_6294.JPG)
 ![IMG_6211.JPG](/uploads/IMG_6211.JPG)
-So, yes that is where I will leave it for now I think. I will for ever remember this; eye openers, other mindsets, nature and space to grow.
+So, yes that is where I will leave it for now I think. I will for ever remember this; eye openers, other mindsets, nature and new spaces to grow.
 ![IMG_6287.JPG](/uploads/IMG_6287.JPG)
 ![IMG_6525.JPG](/uploads/IMG_6525.JPG)
 ![IMG_6548.JPG](/uploads/IMG_6548.JPG)
