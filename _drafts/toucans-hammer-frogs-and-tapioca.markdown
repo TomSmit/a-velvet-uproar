@@ -34,3 +34,6 @@ One thought I am still trying to look at from all sides is, how at all the place
 To me, to abandon this reality most people know is creating more walls and I believe what we need right now are bridges, a fuck load of them.
 ![IMG_1647.JPG](/uploads/IMG_1647.JPG)
 I feel a great responsibilty to people living in lesser conditions. How can we turn away from that? Put it aside. I was merely luckily of where I was born. We are all so very much connected and we have to, we need to come together. To force this energy to change. We all as a mass need to be heard, together.
+![IMG_6525.JPG](/uploads/IMG_6525.JPG)
+![IMG_6535.JPG](/uploads/IMG_6535.JPG)
+![IMG_6548.JPG](/uploads/IMG_6548.JPG)
