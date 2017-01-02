@@ -18,4 +18,4 @@ I gotta be honest, if my future is too set in stone it uneases me. I do not want
 
 *And I know I am the luckiest woman alive to have found someone who understands the gut feeling, who is as thirsty as I am for the endless possibilities and who appreciates the simplicity of life.* 
 
-Since writing this I have this quote stuck in my mind ‘If it is right, it happens – the main thing is not to hurry. Nothing good gets away’. 
+Since writing this I have this one particular quote stuck in my mind ‘If it is right, it happens – the main thing is not to hurry. Nothing good gets away’. 
