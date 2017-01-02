@@ -16,6 +16,6 @@ Last year when we were in Budapest I did not have the slightest clue where we wo
 
 I gotta be honest, if my future is too set in stone it uneases me. I do not want to know what I will be doing one year from now, let alone what I will be doing five years from now. I do not want to know where I will be. The possibilities, the spontaneity, the gut feeling they are what I need to feel free, they are what I need to feel alive. 
 
-*And I know I am the luckiest woman alive to have found someone who understands the gut feeling, who is as thirsty as I am for the endless possibilities and who appreciates the simplicty of life.* 
+*And I know I am the luckiest woman alive to have found someone who understands the gut feeling, who is as thirsty as I am for the endless possibilities and who appreciates the simplicity of life.* 
 
 Since writing this I have this quote stuck in my mind ‘If it is right, it happens – the main thing is not to hurry. Nothing good gets away’. 
