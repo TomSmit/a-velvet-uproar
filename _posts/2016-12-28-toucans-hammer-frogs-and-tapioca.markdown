@@ -24,7 +24,7 @@ The island is beautiful. It is gorgeous. We took a hike and the views were amazi
 ![IMG_1606.JPG](/uploads/IMG_1606.JPG)
 ![IMG_1602.JPG](/uploads/IMG_1602.JPG)
 For me, personally, looking back now my time there stands for going back to basic and realizing how much I missed it and feeling it in my heart when it comes to knowing how little I need. We slept in a tent and falling asleep to the sound of hammer frogs (that is not really their name but that's what we ended up calling them because the frogs truly make a hammering like noise in the middle of the night), waking up to the birds sing, there is hardly anything that can settle my heart more. There is such reassurance in nature. The simplicity of washing our laundry by hand, a compost toilet, cold showers, no electricity so no wifi and light makes space for lots  of talks, enjoying what you already have and being aware of how grateful I am. I realized  I am slowly finding my way spiritually. Chakras, yoga, praying to something external from us, or praying to something above, outside this world that's simply not me. Deep from within I feel like that is something my innerself is saying no to. And it is a process, I am slowly learning what feels exactly right to me. For a little while I thought maybe in this phase of my life I am feeling less spiritual and I learned that's not the case. But the spiritual way we get 'sagurated' with in Europe and even what I have seen so far in the places where we have been here, that is something I cannot find myself in.
-![1.JPG](/uploads/1.JPG)
+![number1.JPG](/uploads/number1.JPG)
 When it got to be November 9th I realized my grandmother passed away 3 years ago and it was in such big contrast with hearing the news of Trump being elected through text message. What I remember thinking was 'What the actual fuck?!' And that I wanted to punch something. Not because I was feeling agressive but because there was such an unsettled force of energy within me. That night I was sad for the world. It also unsettled me, above all it told me how much people are not believing all of anything anymore. That people are grasping at someone saying such outrageous things and he still seems like the better option, that has got to tell us something.
 ![3.JPG](/uploads/3.JPG)
 I hope the world is willing to be ready for change, the whole Trump thing aside.
@@ -40,4 +40,4 @@ I feel a great responsibilty to the world, to humanity. To people living in less
 ![IMG_6211.JPG](/uploads/IMG_6211.JPG)
 So, yes that is where I will leave it for now I think. I will for ever remember this; eye openers, other mindsets, nature and new spaces to grow.
 ![IMG_6287.JPG](/uploads/IMG_6287.JPG)
-(Pictured above, a drawing Hien made of me, Lisa)
+\(Pictured above, a drawing Hien made of me, Lisa)
