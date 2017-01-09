@@ -1,9 +1,12 @@
 ---
 title: A human desire
 date: 2017-01-09 11:34:00 Z
+tags:
+- "#Uruguay"
+- "#TomandLisadoSouthAmerica"
 ---
 
-*The lessons traveling is teaching me always surprise me in the best way possible. It is like going on a hunt for new emotions due to indulging myself in new experiences. I think above all what appeals to me most about it is, deciding very consciously to challenge myself. It gives a feeling of motion.*
+*The lessons traveling is teaching me always surprise me in the best way possible. It is like going on a hunt for new emotions due to indulging myself in new experiences. I think above all what appeals to me most about it is, deciding very consciously to challenge myself. It gives a feeling of motion.*<!--more-->
 
 It demands my attention, there’s no way around it. It is like bringing myself towards my own obstacles instead of waiting for them to find me. It is a constant force of attention I cannot get around. It is like ‘Hé! Pay attention. Look me in the eyes. Now stare.’ 
 
