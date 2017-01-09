@@ -15,4 +15,4 @@ Lately I have been finding it hard to sit still. ‘I want to do this, this, oh 
 
 Simply just really having to grow personally and developing myself is something I have not found in such an extreme form anywhere else and I think that is what makes it so addictive if you will. The fear, pushing myself, the adrealine, the feeling of overcoming myself, it is like I said; a feeling of motion. A feeling of forward motion. 
 
-It is like at night I am exhausted for all the right reasons (which obviously are solemnly my personal right reasons) and it is like fuck! Yes! Life!
+At night I am exhausted for all the right reasons (which obviously are only my personal right reasons) and it is like fuck! Yes! Life!
