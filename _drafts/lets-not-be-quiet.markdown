@@ -6,7 +6,7 @@ tags:
 - "#TomandLisadoSouthAmerica"
 ---
 
-I am trying to come up with another way of saying ‘this is it’ without sounding too cliché but I am coming up blank so, this is it. And truly, fucking really this is it. This is the moment, there’s a different energy in the air. Let us be ready for change because we are going to need it. All of us are depended on it.
+*I am trying to come up with another way of saying ‘this is it’ without sounding too cliché but I am coming up blank so, this is it. And truly, fucking really this is it. This is the moment, there’s a different energy in the air. Let us be ready for change because we are going to need it. All of us are depended on it.*<!--more-->
 
 Looking back now when I half consciously and half subconsciously embraced a new year I closed a certain time period and I swifted my energy to all I want and all I find scary (and of course they go hand in hand). But it seems like not only did I swift my energy, the mass energy seems to have swifted also. Everywhere I look there is such a strong energy running through the air. But my mind is battling from time to time. I am aware of such a big understanding going round while at the same time there is a huge gap between people. Somehow at a certain point in time it turned into us and them and it has never been anything but us. All of us. 
 
