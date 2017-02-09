@@ -4,6 +4,7 @@ date: 2017-02-09 21:02:00 Z
 tags:
 - "#Uruguay"
 - "#TomandLisadoSouthAmerica"
+image: "/uploads/jesusruiz.JPG"
 ---
 
 *I am trying to come up with another way of saying ‘this is it’ without sounding too cliché but I am coming up blank so, this is it. And truly, fucking really this is it. This is the moment, there’s a different energy in the air. Let us be ready for change because we are going to need it. All of us are depended on it.*<!--more-->
