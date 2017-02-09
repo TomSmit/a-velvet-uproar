@@ -4,6 +4,7 @@ date: 2017-02-09 21:02:00 Z
 tags:
 - "#Uruguay"
 - "#TomandLisadoSouthAmerica"
+image: "/uploads/jesusruiz.JPG"
 ---
 
 *I am trying to come up with another way of saying ‘this is it’ without sounding too cliché but I am coming up blank so, this is it. And truly, fucking really this is it. This is the moment, there’s a different energy in the air. Let us be ready for change because we are going to need it. All of us are depended on it.*<!--more-->
@@ -12,7 +13,7 @@ Looking back now when I half consciously and half subconsciously embraced a new 
 
 Never before did I feel such a ‘rightness’ in being female, in being a woman. It seems I, without any hesitation, dove right into a warm but powerful pool I wasn’t so much aware of before. Where I found an unity, an understanding; which sparked a strength within me which surprised me. Since then I’ve been witnessing that link by link a chain is being created. I was part of ‘a women circle’ one afternoon and these are the words I wrote about my experience;
 
-*Self grown and dried tobacco was being rolled inside a dried corn leaf together with some other home grown herbs. The week before I had rolled and bundled the big dried leafs up with a threat after I noticed them hanging down from a self improvised washing line to dry. Now the ‘cigarette’ (for my lack of a better word) was being passed around the circle one by one.*
+*Self grown and dried tobacco was being rolled inside a dried corn leaf together with some other home grown herbs. The week before I had rolled and bundled the big dried leafs up with a thread after I noticed them hanging down from a self improvised washing line to dry. Now the ‘cigarette’ (for my lack of a better word) was being passed around the circle one by one.*
 
 *There I sat, ten other women surrounding me, on the Earth’s  floor with trees surrounding us, providing us with shade. A soft bonfire burned between all of us. Here in South America, as seen from her indigenous people both smoke and the tobacco plant are holy. When the cigarette was passed down to me I remembered the words with which they explained what I had to do next. “Think about what you would want (to achieve, do… anything. You could see it as a prayer.), now take a drag and when you exhale and the smoke goes up, it is seen as your prayer going up to the universe.”*
 
