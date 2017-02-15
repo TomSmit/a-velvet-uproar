@@ -6,7 +6,7 @@ tags:
 - "#TomandLisadoSouthAmerica"
 ---
 
-*I looked up at the pitch black, starry sky and I could literally see thousands of stars. There was no moon to be seen, no sound to be heard. Just me gazing up at the sky and while I thought ‘night is merely day in the dark’ I chuckled at myself. *<!--more--> ![IMG_6525.JPG](/uploads/IMG_6525.JPG)
+*I looked up at the pitch black, starry sky and I could literally see thousands of stars. There was no moon to be seen, no sound to be heard. Just me gazing up at the sky and while I thought ‘night is merely day in the dark’ I chuckled at myself.*<!--more--> ![IMG_6525.JPG](/uploads/IMG_6525.JPG)
 We are currently close to Rocha, Uruguay and if I would chronically write about the places we have been since my last update I would write about crossing the border from Brazil to Argentina and arriving in Buenos Aires and I guess, let’s give it a try…
 
 For a ridiculously long time I haven’t even been trying to write about our time in Buenos Aires, not even one attempt. I guess one of the reasons being that it felt oddly familiar. People told us before, plus I also read in certain places, how it in many ways has an European feel to it. Some even describe it as Parisian like. And yeah, sure, I can see that.
