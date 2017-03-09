@@ -12,6 +12,11 @@ image: "/uploads/IMG_1735.JPG"
 From December 15th (2016) to February 12th (2017) we were in Uruguay I already once described our time there as; "From exploring Montevideo to going more land inwards and spending time in Minas, visiting extremely touristy beaches, to grounding in the sierras of Rocha to experiencing candombe, oh what an amazing two months it has been. I will forever remember the yerba mate, the candombe, the accent, every town having the same street names, the friendly people, 3 hour bus rides instead of something like 30 hour bus rides ah and so much more. Uruguay, yes. You wild but somehow calming thing."
 ![IMG_1744.JPG](/uploads/IMG_1744.JPG)
 ![IMG_1768.JPG](/uploads/IMG_1768.JPG)
+![IMG_7356.JPG](/uploads/IMG_7356.JPG)
+![IMG_7371.JPG](/uploads/IMG_7371.JPG)
+![IMG_7385.JPG](/uploads/IMG_7385.JPG)
+![IMG_7425.JPG](/uploads/IMG_7425.JPG)
+![IMG_7484.JPG](/uploads/IMG_7484.JPG)
 ![IMG_1854.JPG](/uploads/IMG_1854.JPG)
 ![IMG_1862.JPG](/uploads/IMG_1862.JPG)
 ![IMG_1859.JPG](/uploads/IMG_1859.JPG)
