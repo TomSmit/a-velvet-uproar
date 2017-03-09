@@ -4,7 +4,7 @@ date: 2017-03-09 20:41:00 Z
 tags:
 - "#Uruguay"
 - "#TomandLisadoSouthAmerica"
-image: "/uploads/IMG_8471.JPG"
+image: "/uploads/IMG_1862.JPG"
 ---
 
 *At the moment, I feel more silent. I don't feel like I have less to say. But I am trying to figure out what exactly it is I am trying to say and finding the right words in the process.*<!--more-->
