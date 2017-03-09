@@ -42,4 +42,10 @@ From December 15th (2016) to February 12th (2017) we were in Uruguay I already o
 ![IMG_2450.JPG](/uploads/IMG_2450.JPG)
 ![IMG_2457.JPG](/uploads/IMG_2457.JPG)
 ![IMG_2473.JPG](/uploads/IMG_2473.JPG)
+![IMG_8322.JPG](/uploads/IMG_8322.JPG)
+![IMG_8334.JPG](/uploads/IMG_8334.JPG)
+![IMG_8352.JPG](/uploads/IMG_8352.JPG)
+![IMG_8409.JPG](/uploads/IMG_8409.JPG)
+![IMG_8468.JPG](/uploads/IMG_8468.JPG)
+![IMG_8471.JPG](/uploads/IMG_8471.JPG)
 I still, feel like those words describe our time in Uruguay best, along with pictures because man, I love pictures. They are still this personal, magical thing which captures a split second in time somewhere on this planet.
