@@ -19,9 +19,9 @@ defaults:
       latitude: 
       longitude: 
 email: avelvetuproar@gmail.com
-about: A Velvet Uproar is a personal platform on adventure seeking, working on change
-  through learning and being active and wanting to be heard through the arts.
-baseurl: ''
+about: It is all about learning, being open for eye openers, believing in and working
+  on change and taking care of the planet.
+baseurl: 
 url: http://avelvetuproar.com
 github_username: tomsmit
 markdown: kramdown
