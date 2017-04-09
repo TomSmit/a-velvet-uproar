@@ -3,7 +3,7 @@ title: A thing or two
 date: 2017-04-09 17:04:00 Z
 ---
 
-*A few days ago I read the words “The journey changes you; it should change you.” Something I have been thinking about off and on. I have moments where I have difficulty excepting the thought of realizing that the people closest to me do not fully know me, the way I am now. Simply because of not physically being close to each other. I came up with two things. One, my personal growth and changes are my own anyway and two, what is this (human) desire of wanting to share.*
+*A few days ago I read the words “The journey changes you; it should change you.” Something I have been thinking about off and on. I have moments where I have difficulty excepting the thought of realizing that the people closest to me do not fully know me, the way I am now. Simply because of not physically being close to each other. I came up with two things. One, my personal growth and changes are my own anyway and two, what is this (human) desire of wanting to share.*<!--more-->
 
  What is this desire of me wanting them to know I learned, I grew, I changed.
 
