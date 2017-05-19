@@ -26,7 +26,7 @@ February 2015 to May 2016, northern Italy, southern Spain and traveling a bit mo
 
 When at the of May we went back to the Netherlands, we already booked our flight to São Paulo, Brazil for the beginning of October and I really needed that. It was what made me not go ‘What the fuck am I doing here?!’ Four whole months back in the Netherlands. A place I still describe to people as ‘a place I don’t hate at all but one I don’t particularly get excited about either.’
 
-Being back wasn’t as horrible as I at times imagined it. It will always be the place I grew up, where my oldest memories are, where my family lives. Where my sister lives. She made it real clear, she wouldn’t be visiting me. You gotta live with your own decisions and that’s part of mine. Missing family. Not being in the same place. Phone calls and video chats for birthdays, new years, good news, bad news. Ah, all of it.
+Being back wasn’t as horrible as I at times imagined it. It will always be the place I grew up, where my oldest memories are, where my family lives. Where my sister lives. She made it real clear, she wouldn’t be visiting me. You gotta live with your own decisions and that’s part of mine. Missing family. Not being in the same place. Phone calls and video chats for birthdays, new year's eve, good news, bad news. Ah, all of it.
 
 It might have been 2013 when it started. When quit fiercely my whole entire being knew I needed to go to South America. Funny really how that goes. Again, follow that fucking gut feeling, don’t hesitate and don’t look back.
 
