@@ -3,6 +3,7 @@ title: A gut feeling
 date: 2017-05-19 02:35:00 Z
 tags:
 - "#TomandLisadoSouthAmerica"
+image: "/uploads/IMG_9769.JPG"
 ---
 
 *I needed to reinvent myself. I needed to know who I truly am. I wanted to know who I truly am. I guess, that fucking sentence brings other things along with it. I mean, aren’t we always reinventing ourselves? Changing, learning, growing.*
