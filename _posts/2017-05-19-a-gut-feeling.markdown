@@ -28,6 +28,6 @@ When at the of May we went back to the Netherlands, we already booked our flight
 
 Being back wasn’t as horrible as I at times imagined it. It will always be the place I grew up, where my oldest memories are, where my family lives. Where my sister lives. She made it real clear, she wouldn’t be visiting me. You gotta live with your own decisions and that’s part of mine. Missing family. Not being in the same place. Phone calls and video chats for birthdays, new year's eve, good news, bad news. Ah, all of it.
 
-It might have been 2013 when it started. When quit fiercely my whole entire being knew I needed to go to South America. Funny really how that goes. Again, follow that fucking gut feeling, don’t hesitate and don’t look back.
+It might have been 2013 when it started. When quite fiercely my whole entire being knew I needed to go to South America. Funny really how that goes. Again, follow that fucking gut feeling, don’t hesitate and don’t look back.
 
-I cannot quit look at it from a distance yet. But for now I can tell you this; We are all the fucking same, growing up in the Netherlands was a privilege, stop the complaining, be grateful everyday, I found something real special in being on the road, be involved, speak your mind and paint. Fucking paint.
+I cannot quite look at it from a distance yet. But for now I can tell you this; We are all the fucking same, growing up in the Netherlands was a privilege, stop the complaining, be grateful everyday, I found something real special in being on the road, be involved, speak your mind and paint. Fucking paint.
