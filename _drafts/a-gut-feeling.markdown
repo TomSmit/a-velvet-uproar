@@ -5,7 +5,7 @@ tags:
 - "#TomandLisadoSouthAmerica"
 ---
 
-I needed to reinvent myself. I needed to know who I truly am. I wanted to know who I truly am. I guess, that fucking sentence brings other things along with it. I mean, aren’t we always reinventing ourselves? Changing, learning, growing.
+*I needed to reinvent myself. I needed to know who I truly am. I wanted to know who I truly am. I guess, that fucking sentence brings other things along with it. I mean, aren’t we always reinventing ourselves? Changing, learning, growing.*
 
 But ‘más o menos’ two years ago, it was undeniable. There was no way around it, it was so clear. I mean fuck, I felt so strongly I needed a big bold change. A change of scenery, of people, of daily activities. I couldn’t live the life I was living anymore but I wasn’t exactly sure what it was I wanted. All I knew and felt was the longing for the road. God, I mean thank god that never changed. That turned out to not be a longing but a part of me. 
 
